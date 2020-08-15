@@ -62,7 +62,7 @@ color_settings:
   text_dark_color: '#2A2F36'
   text_medium_color: '#848484'
   text_light_color: '#ABB7B7'
-  accent_color: '#0C5DF2'
+  accent_color: '#9c9c9c'
   border_color: '#dddddd'
   overlay_background_color: '#000'
   overlay_text_color: '#ffffff'
@@ -92,7 +92,7 @@ font_settings:
     small_size: 30
     medium_size: 15
     large_size: 16
-    weight: 500
+    weight: 300
     letter_spacing: 0
   grid_item_title:
     small_size: 22

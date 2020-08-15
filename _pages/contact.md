@@ -5,6 +5,12 @@ description: Contact Frances Pinnock
 featured_image: /images/demo/demo-landscape.jpg
 ---
 
-**instagram** [francespinnock](https://www.instagram.com/francespinnock)
+**Studio Contact**
 
-**email** <frances@francespinnock.com>
+<frances@francespinnock.com>
+<br />
+<br />
+<br />
+**Instagram**
+
+[francespinnock](https://www.instagram.com/francespinnock)

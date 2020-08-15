@@ -3,7 +3,7 @@ title: 'Vessel Collections'
 subtitle: ''
 date: 2020-08-15 00:00:00
 description: 
-featured_image: '/images/works/Bombard2close3.JPG'
+featured_image: '/images/works/crop-Bombard2close3-0.JPG'
 ---
 
 <div class="gallery" data-columns="1" style="width: 500px">
