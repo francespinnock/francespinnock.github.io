@@ -1,3 +1,0 @@
-# francespinnock.github.io
-
-weoiooodsfodf
