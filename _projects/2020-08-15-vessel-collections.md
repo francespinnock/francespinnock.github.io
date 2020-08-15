@@ -6,12 +6,12 @@ description:
 featured_image: '/images/works/crop-Bombard2close3-0.JPG'
 ---
 
-<div class="gallery" data-columns="1" style="width: 500px">
-	<img src="/images/works/Bombard2close6.JPG">
-	<img src="/images/works/Bombard2close3.JPG">
+<div class="gallery" data-columns="1">
 	<img src="/images/works/Bombard1(3).JPG">
 	<img src="/images/works/Bombard2portrait1(2).JPG">
 	<img src="/images/works/Bombard3.JPG">
 	<img src="/images/works/Hex1.JPG">
 	<img src="/images/works/Hex2.JPG">
+	<img src="/images/works/Bombard2close6.JPG">
+	<img src="/images/works/Bombard2close3.JPG">
 </div>
