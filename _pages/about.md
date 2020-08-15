@@ -4,9 +4,9 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-Frances Pinnock *(b. 1990, Bristol UK)* lives and works in London
+Frances Pinnock (b. 1990, Bristol UK) lives and works in London
 
-*BA, Modelmaking, Arts University Bournemouth*
+BA, Modelmaking, Arts University Bournemouth
 
 <hr />
 
@@ -20,8 +20,9 @@ I work primarily with leather produced by the last remaining oak bark tannery in
 
 <hr />
 
-## Selected Group Exhibitions
+## Exhibitions
 2019 **Making it in London** - Cockpit Arts Open Studios, London  
+2019 **Messums** - Wiltshire  
 2019 **Christmas Open Studios** - Cockpit Arts Open Studios, London  
 
 ## Awards and Residencies
@@ -30,6 +31,3 @@ I work primarily with leather produced by the last remaining oak bark tannery in
 2019 **Worshipful Company of Leathersellers’ Award** - Cockpit Arts, London  
 2017 **Heritage Craft Association Scholarship Grant** - HCA / The Arts Society, London  
 2017 **Queen Elizabeth Scholarship Trust Award** - QEST Garfield Weston Foundation, London  
-
-## Exhibitions
-2019 **Messums** - Wiltshire  
