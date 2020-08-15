@@ -4,7 +4,6 @@ title: Frances Pinnock
 description: Homepage of Frances Pinnock
 featured_image: /images/social.jpg
 ---
-
 <section class="portfolio">
 
 	<div class="content-wrap portfolio-wrap">
@@ -35,3 +34,21 @@ featured_image: /images/social.jpg
 	</div>
 
 </section>
+
+Frances Pinnock *(b. 1990, Bristol UK)* lives and works in London
+
+*BA, Modelmaking, Arts University Bournemouth*
+
+## Selected Group Exhibitions
+- 2019 Cockpit Arts Open Studios
+- 2019 Messums Wiltshire
+
+## Awards and Residencies
+- 2020 Worshipful Company of Leathersellers’ Award Cockpit Arts, London
+- 2019 Jill Humphreys Springboard Prize Cockpit Arts, London
+- 2019 Worshipful Company of Leathersellers’ Award Cockpit Arts, London
+- 2017 Heritage Craft Association Scholarship Grant
+- 2017 Queen Elizabeth Scholarship Trust Scholarship Grant
+
+## Exhibitions
+- 2019 Messums Wiltshire
