@@ -10,5 +10,4 @@ featured_image: '/images/works/4Inkprintpainting.jpg'
 	<img src="/images/works/IMG_20200319_133612.jpg">
 	<img src="/images/works/Print1.jpg">
 	<img src="/images/works/print2.jpg">
-	<img src="/images/works/print3.jpg">
 </div>
