@@ -19,8 +19,10 @@ Her processing is a continuous dialogue between the two-dimensional pattern and 
 Frances works primarily with sole bend leather used traditionally in bespoke shoemaking and produced by the last remaining oak bark tannery in the UK. J & F J Baker utilise bovine skins as a byproduct of the west country meat industry and tanning processes that have remained unchanged for over a thousand years. As the sap rises in spring, oak bark is gathered from coppiced woods in the Lake District and each skin is left to mature for twelve months before being hand worked into vessel forms. 
 
 <hr />
+## Upcoming Events
+Wednesday 30th September 2020&nbsp;&nbsp;&nbsp; **Tour Series at Cockpit Arts Deptford** - London Craft Week, London
 
-## Exhibitions
+## Exhibitions and Events
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
