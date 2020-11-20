@@ -10,7 +10,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 <hr />
 
-Frances is a London based artist and maker working across traditional and contemporary craft practices. Her work explores the natural properties of Oak within  ancient methods of leather tanning and ink making. 
+Frances is a London based artist working across traditional and contemporary craft practices. Her work explores the natural properties of Oak within  ancient methods of leather tanning and ink making. 
 
 Interested in the transformative effects of time and environment on natural materials, she applies slow and respectful hand processing to English oak bark tanned leather, creating sculptural vessel forms.
 
