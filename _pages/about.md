@@ -4,6 +4,8 @@ subtitle:
 description: About Frances Pinnock
 ---
 
+<img src="/images/new/about/portrait.jpg" width="300">
+
 Frances Pinnock (b. 1990, Bristol UK) lives and works in London
 
 BA Modelmaking, Arts University Bournemouth, 2014 
@@ -20,7 +22,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 
 <hr />
 ## Upcoming Events
-From Thursday 26th November 2020&nbsp;&nbsp;&nbsp;- **Cockpit Makers' Market** 
+From Thursday 26th November 2020 - **Cockpit Makers' Market** 
 
 ## Exhibitions and Events
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts Open Studios, London  

@@ -277,7 +277,7 @@
 // - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - Projects menu
 
 .projects-menu {
-	display: none;
+	/*  display: none; */
 	
 	@include mq(tabletl) {
 		display: block;
