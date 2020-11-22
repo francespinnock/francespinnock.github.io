@@ -5,6 +5,8 @@ date: 2020-11-22 00:00:00
 description: 
 ---
 
+<div style="max-width: 800px">
+
 <img src="/images/new/sculptures/vessel-forms/1.jpg" />
 
 <p style="margin-left: 0; padding-bottom: 2em">
@@ -40,7 +42,7 @@ description:
 <img src="/images/new/sculptures/vessel-forms/5.jpg" />
 
 <p style="margin-left: 0; padding-bottom: 2em">
-	<b>Bombard Dyad Form, 2019 (Detail)</b><br />
+	<b>Bombard Dyad Form, 2020 (Detail)</b><br />
 	Oak bark tanned leather, hemp thread, beeswax<br />
 	75w x 40d x 56h cm
 </p>
@@ -48,7 +50,7 @@ description:
 <img src="/images/new/sculptures/vessel-forms/6.jpg" />
 
 <p style="margin-left: 0; padding-bottom: 2em">
-	<b>Bombard Dyad Form, 2019, (Detail)</b><br />
+	<b>Bombard Dyad Form, 2020, (Detail)</b><br />
 	Oak bark tanned leather, hemp thread, beeswax<br />
 	75w x 40d x 56h cm
 </p>
@@ -72,3 +74,5 @@ description:
 <p style="margin-left: 0; padding-bottom: 2em">
   Photography by <a href="https://aluncallender.com/">Alun Callender</a>
 </p>
+
+</div>
