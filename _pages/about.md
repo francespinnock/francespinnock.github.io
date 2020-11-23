@@ -25,7 +25,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 From Thursday 26th November 2020 - **Cockpit Makers' Market** 
 
 ## Exhibitions and Events
-2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts Open Studios, London  
+2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
