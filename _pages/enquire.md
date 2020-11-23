@@ -7,7 +7,7 @@ featured_image: /images/demo/demo-landscape.jpg
 
 **Studio Contact**
 
-<frances@francespinnock.com>
+<studio@francespinnock.com>
 <br />
 <br />
 <br />
