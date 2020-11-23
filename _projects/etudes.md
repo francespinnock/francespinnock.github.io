@@ -11,6 +11,10 @@ A handling collection
 </p>
 
 <p style="margin-left: 0">
+<b>For all purchase enquiries please email <a href="mailto:studio@francespinnock.com">studio@francespinnock.com</a></b>
+</p>
+
+<p style="margin-left: 0">
 These works have been created as a series of études for the maker. Nine miniature compositions intended as an exercise to explore and improve technique.
 </p>
 
