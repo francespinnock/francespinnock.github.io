@@ -96,8 +96,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 6: 6 Stitches Per Inch (Goiser stitch), 2020</b><br />
 Oak bark tanned leather, hemp thread, beeswax<br />
-17w x 13d x 7h cm<br />
-Sold
+17w x 13d x 7h cm
 </p>
 
 
