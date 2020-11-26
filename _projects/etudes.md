@@ -35,8 +35,7 @@ Each piece is a weighted form of English oak bark tanned leather. They have each
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 1: 10 Stitches Per Inch, 2020</b><br />
 Oak bark tanned leather, hemp thread, beeswax<br />
-15w x 13d x 6h cm<br />
-Sold
+15w x 13d x 6h cm
 </p>
 
 <img src="/images/new/sculptures/etudes/Etude 2/IMG_20201117_094927.jpg" style="float: left; margin: 1em" width="300" />
@@ -97,7 +96,8 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 6: 6 Stitches Per Inch (Goiser stitch), 2020</b><br />
 Oak bark tanned leather, hemp thread, beeswax<br />
-17w x 13d x 7h cm
+17w x 13d x 7h cm<br />
+Sold
 </p>
 
 
