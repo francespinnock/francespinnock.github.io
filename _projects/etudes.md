@@ -11,7 +11,7 @@ A handling collection
 </p>
 
 <p style="margin-left: 0">
-<b>For all purchase enquiries please email <a href="mailto:studio@francespinnock.com">studio@francespinnock.com</a></b>
+<b>For all enquiries please email <a href="mailto:studio@francespinnock.com">studio@francespinnock.com</a></b>
 </p>
 
 <p style="margin-left: 0">
