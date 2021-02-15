@@ -14,7 +14,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 Frances is a London based artist exploring the effects of time and environment within traditional methods of vegetable tanning and ink making.
 
-She applies slow and respectful hand processing to English oak bark tanned leather, creating sculptural vessel forms. Frances employs technical skills from her background in traditional hand sewn shoemaking and leatherwork, meticulously hand stitches each piece together over many weeks with threads of hemp and beeswax. 
+She applies slow and respectful hand processing to English oak bark tanned leather, creating sculptural vessel forms. Frances employs technical skills from her background in traditional hand sewn shoemaking and leatherwork, meticulously hand stitching each piece together over many weeks with threads of hemp and beeswax. 
 
 Her pieces evolve through a continuous dialogue between drawing and pattern cutting, using hand made inks for print paintings that both document and influence each form.
 
