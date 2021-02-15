@@ -23,7 +23,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 
 <hr />
 ## Upcoming Events
-From Thursday 26th November 2020 - **Cockpit Makers' Market** 
+Friday 26th February 2021 - **Crafting and the Leathersellers** - Arts University Bournemouth, MA Architecture talk series  
 
 ## Exhibitions and Events
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
