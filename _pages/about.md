@@ -16,7 +16,7 @@ Frances is a London based artist exploring the effects of time and environment w
 
 She applies slow and respectful hand processing to English oak bark tanned leather, creating sculptural vessel forms. Frances employs technical skills from her background in traditional hand sewn shoemaking and leatherwork, meticulously hand stitching each piece together over many weeks with threads of hemp and beeswax. 
 
-Her pieces evolve through a continuous dialogue between drawing and pattern cutting, using hand made inks for print paintings that both document and influence each form.
+Her pieces evolve through a continuous dialogue between drawing and pattern cutting, using hand made inks for print paintings that both document and influence each form. Her vessels are minimalist abstractions referencing the human figure and forms in the natural world but the works are predominantly process led, working to explore the materials limits in creating shape and volume.
 
 Frances works primarily with full thickness sole bend leather, produced by the last remaining oak bark tannery in the UK. J & F J Bakers utilise bovine skins as a byproduct of the west country meat industry and sustainable tanning processes that have remained unchanged for over a thousand years. As the sap rises in spring, oak bark is gathered from coppiced woods in the Lake District and each tanned skin is left to mature for twelve months before being hand worked into sculptural vessels.
  
