@@ -26,7 +26,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
   
 
 ## Exhibitions and Events
-2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - Arts University Bournemouth, MA Architecture talk series
+2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - Arts University Bournemouth, MA Architecture leacture
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
