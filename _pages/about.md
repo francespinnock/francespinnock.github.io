@@ -27,7 +27,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 ## Upcoming Events
 22nd - 29th June 2021&nbsp;&nbsp;&nbsp; **Artefact Contemporary Craft Fair** - QEST - Design Centre, London
 
-## Exhibitions and Events
+## Past Events
 2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Leacture, Arts University Bournemouth  
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
