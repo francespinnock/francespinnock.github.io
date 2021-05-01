@@ -14,7 +14,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 Frances is a London based artist and maker, working in English Oak bark tanned leather.
 
-Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks for print paintings that document and influence each piece. With reference to trees and the human figure, her minimalist forms explore the possibilities of leather for creating shape and volume.
+Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes that influence future forms. With reference to trees and the human figure, her minimalist forms explore the possibilities of leather for creating shape and volume.
 
 Frances applies slow and respectful hand processing to her material, meticulously hand stitching each piece over many weeks with hand made threads of hemp and beeswax. 
 
