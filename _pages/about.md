@@ -34,13 +34,14 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
 
-## Awards and Residencies
-2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts, London  
-2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts, London  
-2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts, London  
-2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts, London  
-2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association Scholarship Grant** - HCA / The Arts Society, London  
-2017&nbsp;&nbsp;&nbsp; **Queen Elizabeth Scholarship Trust Award** - QEST Garfield Weston Foundation, London 
+## Awards 
+2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England 
+2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
+2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
+2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts 
+2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
+2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association Scholarship** - HCA / The Arts Society  
+2017&nbsp;&nbsp;&nbsp; **Queen Elizabeth Scholarship Trust** - QEST -Garfield Weston Foundation 
 
 ## Press
 October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - A Helping Hand - Corinne Julius 
