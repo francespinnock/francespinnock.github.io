@@ -14,9 +14,9 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 Frances is a London based artist and maker, working in English Oak bark tanned leather.
 
-Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms. With reference to trees and the human figure, her minimalist forms explore the possibilities of leather for creating shape and volume.
+Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms. With reference to trees and the human figure, her minimalist forms explore the effects of time an environment on Oak bark leather.
 
-Frances applies slow and respectful hand processing to her material, meticulously hand stitching each piece over many weeks with hand made threads of hemp and beeswax. 
+Frances applies slow and respectful hand processing, meticulously hand stitching each piece with hand made threads of hemp and beeswax. 
 
 
 Frances works primarily with full thickness sole bend leather, produced by the last remaining oak bark tannery in the UK. J & F J Bakers utilising bovine skins as a byproduct of the west country meat industry and tanning processes that have remained unchanged for over a thousand years. As the sap rises in spring, oak bark is gathered from sustainably coppiced woodland in the Lake District and each skin is left to mature for twelve months before being hand worked into sculpture.
