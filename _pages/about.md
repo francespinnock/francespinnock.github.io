@@ -40,8 +40,8 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
-2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association** - HCA Scholar - The Arts Society 
-2017&nbsp;&nbsp;&nbsp; **Queen Elizabeth Scholarship Trust** - QEST Scholar - Garfield Weston Foundation  
+2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association Scholarship** - HCA/ The Arts Society  
+2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
 October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - A Helping Hand - Corinne Julius 
