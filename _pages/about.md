@@ -35,8 +35,8 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
 
 ## Awards 
-2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England      
-2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts
+2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
+2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
