@@ -6,7 +6,7 @@ description: About Frances Pinnock
 
 <img src="/images/new/about/portrait.jpg" width="300">
 
-Frances Pinnock (b. 1990, Bristol UK) lives and works in London
+Frances Pinnock (b. 1990, Bristol UK) 
 
 BA Modelmaking, Arts University Bournemouth, 2014 
 
@@ -14,7 +14,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 Frances is a London based artist and maker, working in English Oak bark tanned leather.
 
-Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms. With reference to trees and the human figure, her minimalist forms explore the effects of time and environment on Oak bark leather.
+Referencing trees and the human figure, her minimalist forms explore the effects of time and environment on Oak bark leather. Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms.
 
 Frances applies slow and respectful hand processing, meticulously hand stitching each piece with hand made threads of hemp and beeswax. 
 
