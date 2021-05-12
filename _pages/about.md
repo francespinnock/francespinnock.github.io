@@ -19,7 +19,7 @@ Her sculptural pieces evolve through drawing and pattern cutting, using hand mad
 Frances applies slow and respectful hand processing, meticulously hand stitching each piece with hand made threads of hemp and beeswax. 
 
 
-Frances works primarily with full thickness sole bend leather, produced by the last remaining oak bark tannery in the UK. J & F J Bakers utilising bovine skins as a byproduct of the west country meat industry and tanning processes that have remained unchanged for over a thousand years. As the sap rises in spring, oak bark is gathered from sustainably coppiced woodland in the Lake District and each skin is left to mature for twelve months before being hand worked into sculpture.
+Frances works primarily with full thickness sole bend leather, produced by the last remaining traditional oak bark tanners in the UK. J & F J Bakers utilise bovine skins as a byproduct of local farming and natural tanning methods, at the site of an original Roman tannery. As the sap rises in spring, oak bark is gathered from coppiced woodland in the Lake District and each skin is left to mature for fourteen months to produce the highest quality leather.
 
  
 
