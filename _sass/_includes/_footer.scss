@@ -9,6 +9,8 @@
 // - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - Footer
 
 .footer {
+	display: none !important; // Not using the footer
+
 	@include transition(all 0.4s ease-in-out 0.8s);
 	padding: 20px;
 
@@ -17,7 +19,7 @@
 	}
 
 	@include mq(tabletl) {
-		display: none;
+		// display: none;
 	}
 }
 

@@ -174,3 +174,7 @@ $grid-spacing: {{ site.data.settings.grid_settings.grid_spacing }}px;
     object-fit: cover;
     max-width: initial;
 }
+
+div.exhibition-notice {
+    margin-bottom: 12em;
+}
