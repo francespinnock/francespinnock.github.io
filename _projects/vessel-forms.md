@@ -18,7 +18,7 @@ description:
 <img src="/images/new/sculptures/vessel-forms/2.jpg" />
 
 <p style="margin-left: 0; padding-bottom: 2em">
-	<b>Bombard 2nd Form, 2019</b><br />
+	<b>Bombard Asymmetric 1st Form, 2019</b><br />
 	Oak bark tanned leather, hemp thread, beeswax<br />
 	31w x 31d x 41h cm
 </p>
@@ -26,7 +26,7 @@ description:
 <img src="/images/new/sculptures/vessel-forms/3.jpg" />
 
 <p style="margin-left: 0; padding-bottom: 2em">
-	<b>Bombard 3rd Form, 2019</b><br />
+	<b>Bombard Asymmetric 2nd Form, 2019</b><br />
 	Oak bark tanned leather, hemp thread, beeswax<br />
 	26w x 28d x 50h cm
 </p>
