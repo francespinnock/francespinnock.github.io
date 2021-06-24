@@ -12,7 +12,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 
 <hr />
 
-Frances is a London based artist and maker, working in English Oak bark tanned leather.
+Frances is a London based artist working in English Oak bark tanned leather.
 
 Referencing trees and the human figure, her minimalist forms explore the effects of time and environment on Oak bark leather. Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms.
 
