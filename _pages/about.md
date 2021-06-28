@@ -26,7 +26,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 <hr />
 ## Upcoming Events
 2nd June - 30th July 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery -  London  
-22nd - 29th June 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre London 
+22nd - 29th June 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre London  
 10th - 13th October 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International - Olympia London
 
 ## Past Events
