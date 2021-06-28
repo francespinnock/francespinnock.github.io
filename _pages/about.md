@@ -26,7 +26,8 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 <hr />
 ## Upcoming Events
 2nd June - 30th July 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery -  London  
-22nd - 29th June 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre London
+22nd - 29th June 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre London 
+10th - 13th October 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International - Olympia London
 
 ## Past Events
 2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Leacture, Arts University Bournemouth  
@@ -45,4 +46,5 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
+June 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - Issue 289: Place - New Talent 
 October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - A Helping Hand - Corinne Julius 
