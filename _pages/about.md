@@ -46,5 +46,5 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
-June 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - Issue 289: Place - New Talent 
+July 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - Issue 289: Place - New Talent 
 October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - A Helping Hand - Corinne Julius 
