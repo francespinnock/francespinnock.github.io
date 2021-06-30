@@ -29,7 +29,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 10th - 13th October 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International - Olympia London
 
 ## Past Events
-2020&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London  
+2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London  
 2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Leacture, Arts University Bournemouth  
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
