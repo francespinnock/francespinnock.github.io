@@ -30,7 +30,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 
 ## Past Events
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London  
-2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Leacture, Arts University Bournemouth  
+2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Lecture, Arts University Bournemouth  
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
