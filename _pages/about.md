@@ -4,7 +4,7 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-<img src="/images/new/about/Portrait2.jpg" width="300">
+<img src="/images/new/about/portrait.jpg" width="300">
 
 Frances Pinnock (b. 1990, Bristol UK) 
 
