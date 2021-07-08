@@ -4,6 +4,7 @@ subtitle:
 description: Contact Frances Pinnock
 featured_image: /images/demo/demo-landscape.jpg
 ---
+<link href="//cdn-images.mailchimp.com/embedcode/classic-10_7.css" rel="stylesheet" type="text/css">
 
 **Studio Contact**
 
@@ -18,11 +19,10 @@ featured_image: /images/demo/demo-landscape.jpg
 <br />
 <br />
 
-<link href="//cdn-images.mailchimp.com/embedcode/classic-10_7.css" rel="stylesheet" type="text/css">
-<style type="text/css">
-	#mc_embed_signup{background:#fff; clear:left; font-size:12px;  width:300px; margin-left:123px}
-</style>
-<div id="mc_embed_signup">
+**Mailing List**
+
+Join my mailing list for occasional newsletters and new about upcoming exhibitions
+<div id="mc_embed_signup" class="mail-form wrap">
 <form action="https://francespinnock.us6.list-manage.com/subscribe/post?u=a0ddb03120ee57b0bc8423589&amp;id=d7174fc65c" method="post" id="mc-embedded-subscribe-form" name="mc-embedded-subscribe-form" class="validate" target="_blank" novalidate>
     <div id="mc_embed_signup_scroll">
 	
