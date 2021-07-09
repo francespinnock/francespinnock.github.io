@@ -21,7 +21,7 @@ featured_image: /images/demo/demo-landscape.jpg
 
 **Mailing List**
 
-You are welcome to join my mailing list here, to recieve newsletters on my work and exhibitions.  
+You are welcome to join my mailing list here to recieve newsletters on my work and exhibitions.  
 <div id="mc_embed_signup" class="mail-form wrap">
 <form action="https://francespinnock.us6.list-manage.com/subscribe/post?u=a0ddb03120ee57b0bc8423589&amp;id=d7174fc65c" method="post" id="mc-embedded-subscribe-form" name="mc-embedded-subscribe-form" class="validate" target="_blank" novalidate>
     <div id="mc_embed_signup_scroll">
