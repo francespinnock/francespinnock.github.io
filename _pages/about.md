@@ -29,7 +29,7 @@ Frances works primarily with full thickness sole bend leather, produced by the l
 
 ## Past Events
 
-2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London
+2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London  
 2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Lecture, Arts University Bournemouth  
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
