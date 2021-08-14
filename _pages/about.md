@@ -10,18 +10,6 @@ Frances Pinnock (b. 1990, Bristol UK)
 
 BA Modelmaking, Arts University Bournemouth, 2014 
 
-<hr />
-
-Frances is a London based artist whose practice explores the possibilities of oak bark leather as a medium for sculpture and object making.
-
-Drawing references from nature and the human figure, her minimalist forms allow a space to express the effects of time and the environment on the surface of the skin. Her sculptural pieces evolve through drawing and pattern cutting, using hand made inks to document panel shapes and influence future forms.
-
-Frances applies slow and respectful hand processing, meticulously hand stitching each piece with hand made threads of hemp and beeswax. 
-
-
-Frances works primarily with full thickness sole bend leather, produced by the last remaining traditional oak bark tanners in the UK. J & F J Bakers utilise bovine skins as a byproduct of local farming and natural tanning methods, at the site of an original Roman tannery. As the sap rises in spring, oak bark is gathered from coppiced woodland in the Lake District and each skin is left to mature for fourteen months to produce the highest quality leather.
-
- 
 
 <hr />
 ## Current & Upcoming Exhibitions  
