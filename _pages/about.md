@@ -1,10 +1,8 @@
 ---
-title: About
+title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
-
-<img src="/images/new/about/portrait.jpg" width="300">
 
 Frances Pinnock (b. 1990, Bristol UK) 
 
