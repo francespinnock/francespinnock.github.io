@@ -15,11 +15,10 @@ BA Modelmaking, Arts University Bournemouth, 2014
 ## Current & Upcoming Exhibitions  
 10th - 13th October 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International - Olympia London
 
-## Past Events
+## Group Exhibitions
 
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
-2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London  
-2021&nbsp;&nbsp;&nbsp; **Crafting and the Leathersellers'** - MA Architecture Lecture, Arts University Bournemouth  
+2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
 2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
