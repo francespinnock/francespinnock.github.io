@@ -1,9 +1,8 @@
 ---
-title: CV
+title: 
 subtitle: 
 description: About Frances Pinnock
 ---
-
 Frances Pinnock (b. 1990, Bristol UK) 
 
 BA Modelmaking, Arts University Bournemouth, 2014 
