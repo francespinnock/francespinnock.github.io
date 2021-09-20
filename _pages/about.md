@@ -1,5 +1,5 @@
 ---
-title: Bio
+title: cv
 subtitle: 
 description: About Frances Pinnock
 ---
