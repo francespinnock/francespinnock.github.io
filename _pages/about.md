@@ -21,7 +21,7 @@ BA Modelmaking, Arts University Bournemouth, 2014
 2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
 
-## Awards 
+## Awards and Grants  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
