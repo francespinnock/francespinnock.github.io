@@ -9,10 +9,10 @@ header_settings:
 
 menu_settings:
   menu_items:
-    - title: 'CV'
-      url: '/About'
+    - title: 'About'
+      url: '/about'
     - title: 'Contact'
-      url: '/Enquire'
+      url: '/enquire'
 
 grid_settings:
   overlay_opacity: 0.8
