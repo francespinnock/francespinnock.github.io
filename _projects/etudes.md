@@ -120,6 +120,6 @@ leather, hemp, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 9: 9 Stitches Per Inch (Goiser stitch), 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 17w x 6d x 12h cm
 </p>
