@@ -12,7 +12,7 @@ A handling collection
 
 
 
-</p>
+
 
 <img src="/images/new/sculptures/etudes/Etude 1/IMG_20201117_094345.jpg" style="float: left; margin: 1em" width="300"/>
 
