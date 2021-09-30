@@ -11,16 +11,7 @@ A handling collection
 </p>
 
 
-<p style="margin-left: 0">
-These works have been created as a series of études for the maker. Nine miniature compositions intended as an exercise to explore and improve technique.
-</p>
 
-<p style="margin-left: 0">
-Each piece is a weighted form of English oak bark tanned leather. They have each been stitched by hand using hand twisted hemp thread and a traditional soling stitch found in bespoke shoemaking; the stitchings are visible on the top surface but secret on the reverse.  The edges have been hand finished with hot tools and polished with beeswax. 
-</p>
-
-<p style="margin-left: 0">
-‘My hope is that these intimate works bring the handler some comfort at a point in time where touch is so restricted. Each cumulative stitch, a minute marking pearl, focusing the eye and the mind. Through touch the leather warms and retains the heat of the handler and over time will deepen in colour and shine.’
 </p>
 
 <img src="/images/new/sculptures/etudes/Etude 1/IMG_20201117_094345.jpg" style="float: left; margin: 1em" width="300"/>
