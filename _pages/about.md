@@ -3,7 +3,7 @@ title: cv
 subtitle: 
 description: About Frances Pinnock
 ---
-Frances Pinnock (b. 1990, Bristol UK) 
+Frances Pinnock (b. 1990, Bristol UK), lives and works in London. 
 
 BA Modelmaking, Arts University Bournemouth, 2014 
 
