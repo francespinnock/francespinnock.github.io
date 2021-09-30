@@ -22,7 +22,7 @@ A handling collection
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 1: 10 Stitches Per Inch, 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 15w x 13d x 6h cm
 </p>
 
@@ -34,7 +34,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 2: 6 Stitches Per Inch, 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 20w x 13d x 9h cm
 </p>
 
@@ -46,7 +46,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 3: 7 Stitches Per Inch, 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 15w x 8d x 13h cm
 </p>
 
@@ -58,7 +58,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 4: 15 Stitches Per Inch, 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 16w x 6d x 13h cm
 </p>
 
@@ -70,7 +70,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 5: 9 Stitches Per Inch, 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 17w x 7d x 12h cm
 </p>
 
@@ -83,7 +83,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 6: 6 Stitches Per Inch (Goiser stitch), 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 17w x 13d x 7h cm
 </p>
 
@@ -96,7 +96,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 7: 7 Stitches Per Inch (Goiser stitch), 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 12w x 7d x 13h cm
 </p>
 
@@ -108,7 +108,7 @@ Oak bark tanned leather, hemp thread, beeswax<br />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 8: 8 Stitches Per Inch (Goiser stitch), 2020</b><br />
-Oak bark tanned leather, hemp thread, beeswax<br />
+leather, hemp, beeswax<br />
 14w x 15d x 8h cm
 </p>
 
