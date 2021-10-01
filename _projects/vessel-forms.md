@@ -20,7 +20,7 @@ description:
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Asymmetric 1st Form, 2019</b><br />
 	leather, hemp, beeswax<br />
-	31w x 31d x 41h cm
+	35w x 23d x 36h cm
 </p>
 
 <img src="/images/new/sculptures/vessel-forms/3.jpg" />
