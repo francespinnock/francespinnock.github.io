@@ -14,10 +14,7 @@ featured_image: /images/demo/demo-landscape.jpg
 <br />
 **Instagram**
 
-[francespinnock](https://www.instagram.com/francespinnock)
-<br />
-<br />
-<br />
+
 
 **Mailing List**
 
