@@ -178,3 +178,19 @@ $grid-spacing: {{ site.data.settings.grid_settings.grid_spacing }}px;
 div.exhibition-notice {
     margin-bottom: 1.3em;
 }
+
+div.siema-buttons {
+    text-align: center;
+}
+
+div.siema-buttons button {
+    border: none;
+}
+
+.menu-gap {
+    font-size: 5px;
+}
+
+.menu-offset {
+    padding-left: 10px;
+}

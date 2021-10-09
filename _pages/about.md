@@ -1,5 +1,5 @@
 ---
-title: cv
+title: 
 subtitle: 
 description: About Frances Pinnock
 ---
@@ -35,6 +35,6 @@ Museum Of Leathercraft, UK
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
-October 2021&nbsp;&nbsp;&nbsp; **The Design Edit** - Future Heritage 2021  
+October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - Future Heritage 2021  
 July 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - Issue 289: Place - New Talent  
 October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - A Helping Hand - Corinne Julius 
