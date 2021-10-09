@@ -32,6 +32,14 @@ description:
 </p>
 </div>
 <div>
+<img src="/images/new/sculptures/vessel-forms/9.jpg" />
+<p style="margin-left: 0; padding-bottom: 2em">
+	<b>Bombard Asymmetric 3rd Form, 2020</b><br />
+	leather, hemp, beeswax<br />
+	44w x 31d x 100h cm
+</p>
+</div>
+<div>
 <img src="/images/new/sculptures/vessel-forms/4.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Dyad Form, 2020</b><br />
@@ -45,14 +53,6 @@ description:
 	<b>Bombard Dyad Form, 2020 (Detail)</b><br />
 	leather, hemp, beeswax<br />
 	75w x 40d x 56h cm
-</p>
-</div>
-<div>
-<img src="/images/new/sculptures/vessel-forms/9.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-	<b>Bombard Asymmetric 3rd Form, 2020</b><br />
-	leather, hemp, beeswax<br />
-	44w x 31d x 100h cm
 </p>
 </div>
 <div>
