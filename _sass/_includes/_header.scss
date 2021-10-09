@@ -240,7 +240,7 @@
 	@include mq(tabletl) {
 		padding: 0;
 		font-size: $menu-medium;
-		//color: $text-dark-color;
+		color: $text-dark-color;
 
 		&:hover {
 			color: $accent-color;
@@ -257,6 +257,23 @@
 		@include mq(tabletl) {
 			color: $accent-color;
 		}
+	}
+}
+
+.menu__list__item__header {
+	font-size: $menu-small;
+	font-weight: $menu-weight;
+	color: $overlay-text-color;
+	padding: 10px 0;
+
+	@include mq(tabletl) {
+		padding: 0;
+		font-size: $menu-medium;
+		color: $text-dark-color;
+	}
+
+	@include mq(laptop) {
+		font-size: $menu-large;
 	}
 }
 
