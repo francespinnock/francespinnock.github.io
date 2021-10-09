@@ -4,7 +4,7 @@ subtitle: ''
 date: 2020-11-22 00:00:00
 description: 
 ---
-<div style="max-width: 600px">
+<div style="max-width: 500px">
 
 <div class="siema">
 <div>
