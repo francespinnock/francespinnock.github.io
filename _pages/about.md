@@ -4,7 +4,7 @@ subtitle:
 description: About Frances Pinnock
 ---
 Frances Pinnock (b. 1990), is a British artist working with Oak bark tanned sole bend leather to create sculpture. 
-Her works are hand stitched and represent forms and figures sighted in dreams, influenced by formations in tree growth and the human figure. 
+Her works are hand stitched and represent forms and figures from dreams and drawings, influenced by the formations in tree growth and the human figure. 
 
 She lives and works in London.
 
