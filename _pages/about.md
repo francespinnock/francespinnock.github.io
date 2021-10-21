@@ -3,7 +3,7 @@ title:
 subtitle: 
 description: About Frances Pinnock
 ---
-Frances Pinnock (b. 1990) lives and works in London.
+Frances Pinnock (b. 1990) lives and works in London.  
 BA Modelmaking, Arts University Bournemouth, UK 2014
 
 
