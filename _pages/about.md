@@ -3,12 +3,8 @@ title:
 subtitle: 
 description: About Frances Pinnock
 ---
-Frances Pinnock (b. 1990), is a British artist working with Oak bark tanned sole bend leather to create sculpture. 
-Her works are hand stitched and represent forms and figures from dreams and drawings, influenced by the formations in tree growth and the human figure. 
-
-She lives and works in London.
-
-BA Modelmaking, Arts University Bournemouth, 2014
+Frances Pinnock (b. 1990) lives and works in London.
+BA Modelmaking, Arts University Bournemouth, UK 2014
 
 
 <hr />
