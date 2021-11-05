@@ -6,7 +6,7 @@ description:
 ---
 
 <p style="margin-left: 0">
-<b>Étude Series - Nine studies in stitch, 2020</b><br />
+<b>Étude 1st Series - Nine studies in stitch, 2020</b><br />
 A handling collection
 </p>
 
