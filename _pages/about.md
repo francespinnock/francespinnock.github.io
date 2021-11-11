@@ -35,7 +35,7 @@ Museum Of Leathercraft, UK
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
-November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - An Oak Leather Forest 2021  
+November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - An Oak Leather Forest   
 November 2021&nbsp;&nbsp;&nbsp; **House and Garden** - The Future In their Hands  
 October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - Future Heritage 2021  
 July 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - Issue 289: Place - New Talent  
