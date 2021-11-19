@@ -10,7 +10,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 <hr />
 ## Current & Upcoming Exhibitions  
 
-&nbsp;&nbsp;&nbsp; **FOG Design + Art | Sarah Myerscough Gallery**  
+ **FOG Design + Art | Sarah Myerscough Gallery**  
 Fort Mason Center, San Fransisco 
 20 - 23 January 2022
 
