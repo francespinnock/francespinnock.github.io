@@ -10,7 +10,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 <hr />
 ## Current & Upcoming Exhibitions  
 
- **FOG Design + Art | Sarah Myerscough Gallery**  
+[FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Fort Mason Center, San Fransisco 
 20 - 23 January 2022
 
@@ -34,7 +34,7 @@ Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscou
 
 Museum Of Leathercraft, UK
 
-## Awards and Grants  
+## Awards & Grants  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
