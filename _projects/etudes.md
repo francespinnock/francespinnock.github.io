@@ -1,5 +1,5 @@
 ---
-title: 'Études'
+title: 'Étude'
 subtitle: ''
 date: 2020-11-22 00:00:00
 description: 
