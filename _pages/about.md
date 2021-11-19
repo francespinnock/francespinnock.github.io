@@ -13,7 +13,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 
 
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
-Fort Mason Center, San Fransisco 
+Fort Mason Center, San Fransisco  
 20th - 23rd January 2022
 
 "A platform for contemporary design and art that shifts, morphs, and reveals itself through multiple forms and dimensions."
