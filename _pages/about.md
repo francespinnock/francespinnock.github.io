@@ -11,6 +11,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 ## Current & Upcoming Exhibitions  
 
 
+
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Fort Mason Center, San Fransisco 
 20 - 23 January 2022
@@ -18,6 +19,8 @@ Fort Mason Center, San Fransisco
 "A platform for contemporary design and art that shifts, morphs, and reveals itself through multiple forms and dimensions."
 
 Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscough Gallery, London.
+
+
 
 
 
