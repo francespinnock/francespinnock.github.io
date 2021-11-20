@@ -10,7 +10,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 <hr />
 ## Current & Upcoming Exhibitions  
 
-
+<br />
 
 
 [CRAFTED COLLECTABLES](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
@@ -20,7 +20,6 @@ Online
 
 "This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship."
 
-<br />
 <br />
 <br />
 <br />
@@ -39,7 +38,7 @@ Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscou
 <br />
 <br />
 <br />
-<br />
+<hr />
 
 ## Group Exhibitions
 
