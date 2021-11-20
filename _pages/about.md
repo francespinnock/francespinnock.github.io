@@ -11,7 +11,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 ## Current & Upcoming Exhibitions  
 
 
-[CRAFTED COLLECTABLES](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)    
+[CRAFTED COLLECTABLES](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 
 19th November 2021 - 31st January 2022
 
