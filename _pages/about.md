@@ -22,8 +22,6 @@ Online
 
 <br />
 <br />
-<br />
-<br />
 
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Fort Mason Center, San Fransisco  
@@ -36,9 +34,6 @@ Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscou
 
 <br />
 <br />
-<br />
-<br />
-<hr />
 
 ## Group Exhibitions
 
