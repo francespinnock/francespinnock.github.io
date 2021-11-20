@@ -21,7 +21,6 @@ Online
 "This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship."
 
 <br />
-<br />
 
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Fort Mason Center, San Fransisco  
@@ -32,7 +31,6 @@ Fort Mason Center, San Fransisco
 
 Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscough Gallery, London.
 
-<br />
 <br />
 
 ## Group Exhibitions
