@@ -32,7 +32,7 @@ Fort Mason Center, San Fransisco
 Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscough Gallery, London.
 
 <br />
-
+<hr />
 ## Group Exhibitions
 
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
