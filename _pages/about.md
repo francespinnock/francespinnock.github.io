@@ -15,7 +15,7 @@ BA Modelmaking, Arts University Bournemouth, UK 2014
 
 19th November 2021 - 31st January 2022
 
-"This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship. We believe that within the taxonomy of objecthood the crafted art object has a unique skill in transferring emotional content; abundant with conceptual narrative and the maker's affinity to material, it proposes a focal point upon which memories and ideas can be created, held or restored over time.."
+"This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship."
 
 
 
