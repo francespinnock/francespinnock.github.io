@@ -16,7 +16,7 @@ BA (Hons) Modelmaking, Arts University Bournemouth, UK 2014
 [CRAFTED COLLECTABLES](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Online
 
-19th November 2021 - 31st January 2022
+19th November 2021 - 31st January, 2022
 
 "This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship."
 
@@ -25,7 +25,7 @@ Online
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 Fort Mason Center, San Fransisco, USA  
 
-20th - 23rd January 2022
+20th - 23rd January, 2022
 
 "A platform for contemporary design and art that shifts, morphs, and reveals itself through multiple forms and dimensions."
 
@@ -34,9 +34,9 @@ Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscou
 <br />
 
 [Collect Art Fair ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
-Somerset HOuse, London, UK
+Somerset House, London, UK
 
-25th - 27th February 2022
+25th - 27th February, 2022
 
 <br />
 <hr />
