@@ -23,13 +23,20 @@ Online
 <br />
 
 [FOG Art + Design](https://www.fogfair.com/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
-Fort Mason Center, San Fransisco  
+Fort Mason Center, San Fransisco, USA  
 
 20th - 23rd January 2022
 
 "A platform for contemporary design and art that shifts, morphs, and reveals itself through multiple forms and dimensions."
 
 Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscough Gallery, London.
+
+<br />
+
+[Collect Art Fair ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
+Somerset HOuse, London, UK
+
+25th - 27th February 2022
 
 <br />
 <hr />
