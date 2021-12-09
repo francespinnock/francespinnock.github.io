@@ -36,7 +36,11 @@ Frances will be exhibiting ‘Bombard Standing Form’, 2020 with Sarah Myerscou
 [Collect Art Fair ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
 Somerset House, London, UK
 
-25th - 27th February, 2022
+25th - 27th February, 2022  
+
+Frances will be exhibiting a range of new works including a number of Études from the new 2021 collection, as part of [Material Masters](https://www.qest.org.uk/qest-to-return-to-collect-in-2022-with-material-masters/) curated by Brian Kennedy. 
+
+"The showcase investigates what has drawn each maker to their material, the unique challenges each material presents along with the skills required to overcome these, and the role that QEST has played on each maker’s journey to becoming a material master."
 
 <br />
 <hr />
