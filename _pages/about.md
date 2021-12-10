@@ -46,7 +46,7 @@ Frances will be exhibiting a range of new works, including a number of Études f
 <hr />
 ## Group Exhibitions
 
-2021&nbsp;&nbsp;&nbsp; **West End Gallery Hop** - SoShiro Gallery, London
+2021&nbsp;&nbsp;&nbsp; **West End Gallery Hop** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
