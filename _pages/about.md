@@ -45,8 +45,7 @@ Frances will be exhibiting a range of new works, including a number of Études f
 <br />
 <hr />
 ## Group Exhibitions
-
-2021&nbsp;&nbsp;&nbsp; **West End Gallery Hop** - SoShiro Gallery, London  
+  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
@@ -69,6 +68,8 @@ Museum Of Leathercraft, UK
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 
 ## Press
+
+January 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' Issue 104
 November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - An Oak Leather Forest   
 November 2021&nbsp;&nbsp;&nbsp; **House and Garden** - The Future In their Hands  
 October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - Future Heritage 2021  
