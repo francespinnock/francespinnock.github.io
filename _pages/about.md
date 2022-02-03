@@ -12,16 +12,6 @@ BA (Hons) Modelmaking, Arts University Bournemouth, UK 2014
 
 <br />
 
-
-[CRAFTED COLLECTABLES](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/) | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
-Online
-
-19th November 2021 - 31st January, 2022
-
-"This new iteration of Crafted Collectables, available from November of 2021, presents small-scale works by gallery artists and the wider community of artist-designer-makers. These sculptural objects and wall pieces act as artefacts to be treasured over a lifetime, nurtured through family generations or gifted in an act of friendship."
-
-<br />
-
 [Collect Art Fair ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
 Somerset House, London, UK
 
@@ -35,6 +25,7 @@ Frances will be exhibiting a range of new works, including a number of Études f
 <hr />
 ## Group Exhibitions
   
+2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online
 2022&nbsp;&nbsp;&nbsp; **FOG DESIGN + ART Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
