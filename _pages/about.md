@@ -10,7 +10,7 @@ BA (Hons) Modelmaking, Arts University Bournemouth, UK 2014
 
 Frances is an artist whose practice reflects upon the natural world. Her vessels and sculptures are informed by biomorphic and figurative drawings that filter through dreams and abstraction to become minimalist forms.
 
-Frances works with sole bend leather produced by the last traditional oak bark tannery in the UK. She creates form through pattern cutting and meticulously hand stitches her works together, using threads hand made from hemp and beeswax. 
+She works with sole bend leather produced by the last traditional oak bark tannery in the UK. She creates form through pattern cutting and meticulously hand stitches her works together, using threads hand made from hemp and beeswax. 
 
 <br />
 
