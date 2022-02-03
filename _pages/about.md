@@ -6,6 +6,8 @@ description: About Frances Pinnock
 Frances Pinnock (b. 1990) lives and works in London.  
 BA (Hons) Modelmaking, Arts University Bournemouth, UK 2014
 
+<br />
+
 Frances is an artist whose practice reflects upon the natural world. Her vessels and sculptures are informed by biomorphic and figurative drawings that filter through dreams and abstraction to become minimalist forms.
 
 Frances works with sole bend leather produced by the last traditional oak bark tannery in the UK. It is a rich and dynamic material that, for her, resonates with something akin to that of living wood.  She manipulates her medium through pattern cutting, and meticulously hand stitches her sculptures together using threads hand made from hemp and beeswax. 
