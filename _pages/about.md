@@ -27,7 +27,7 @@ Frances will be exhibiting a range of new works, including a number of Études f
 ## Group Exhibitions
   
 2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
-2022&nbsp;&nbsp;&nbsp; **FOG DESIGN + ART Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
