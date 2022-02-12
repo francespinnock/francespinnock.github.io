@@ -4,7 +4,7 @@ subtitle:
 description: About Frances Pinnock
 ---
 Frances Pinnock (b. 1990) lives and works in London.  
-BA (Hons) Modelmaking, Arts University Bournemouth, UK 2014
+
 
 <br />
 
@@ -31,16 +31,16 @@ Frances will be exhibiting a range of new works, including a number of Études f
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
-2020&nbsp;&nbsp;&nbsp; **Tour Series London Craft Week** - Cockpit Arts, London  
-2019&nbsp;&nbsp;&nbsp; **Making it in London** - Cockpit Arts Open Studios, London  
-2019&nbsp;&nbsp;&nbsp; **Messums** - Wiltshire  
-2019&nbsp;&nbsp;&nbsp; **Christmas Open Studios** - Cockpit Arts Open Studios, London  
+2020&nbsp;&nbsp;&nbsp; **London Craft Week** - Cockpit Arts, London  
+2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
+2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
+2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 
 ## Public Collections 
 
 Museum Of Leathercraft, UK
 
-## Awards & Grants  
+## Scholarships & Awards  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
