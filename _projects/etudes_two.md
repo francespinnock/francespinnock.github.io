@@ -13,10 +13,10 @@ A handling collection
 <div class="siema">
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/1_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/1_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/1_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/1_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/1_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/1_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/1_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/1_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 1, Series 2</b><br />
@@ -26,10 +26,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/2_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/2_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/2_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/2_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/2_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/2_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/2_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/2_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 2, Series 2</b><br />
@@ -39,10 +39,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/3_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/3_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/3_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/3_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/3_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/3_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/3_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/3_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 3, Series 2</b><br />
@@ -52,10 +52,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/4_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/4_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/4_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/4_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/4_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/4_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/4_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/4_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 4, Series 2</b><br />
@@ -65,10 +65,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/5_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/5_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/5_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/5_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/5_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/5_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/5_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/5_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 5, Series 2</b><br />
@@ -78,10 +78,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/6_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/6_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/6_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/6_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/6_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/6_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/6_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/6_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 6, Series 2</b><br />
@@ -91,10 +91,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/7_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/7_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/7_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/7_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/7_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/7_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/7_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/7_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 7, Series 2</b><br />
@@ -104,10 +104,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/8_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/8_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/8_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/8_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/8_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/8_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/8_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/8_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 8, Series 2</b><br />
@@ -117,10 +117,10 @@ Leather, hemp, beeswax<br />
 </div>
 
 <div>
-<img src="/images/new/sculptures/etudes/series_two/9_2/1.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/9_2/2.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/9_2/3.JPG" style="float: left; margin: 1em" width="300" />
-<img src="/images/new/sculptures/etudes/series_two/9_2/4.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/9_2/1.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/9_2/2.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/9_2/3.JPG" style="float: left; margin: 1em" width="300" />
+<img src="/images/new/sculptures/etudes/series_two/shrunk/9_2/4.JPG" style="float: left; margin: 1em" width="300" />
 
 <p style="margin-left: 0; padding-bottom: 2em; clear: both">
 <b>Étude 9, Series 2</b><br />
