@@ -9,4 +9,4 @@ featured_image: /images/demo/demo-landscape.jpg
 <studio@francespinnock.com>
 
 
-A number of works avaiable with **[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/)** 
+A number of my works are avaiable with **[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/)** 
