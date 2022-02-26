@@ -51,6 +51,7 @@ Museum Of Leathercraft, UK
 
 ## Press
 
+January 2022&nbsp;&nbsp;&nbsp; **[Crafts Council](https://www.craftscouncil.org.uk/stories/top-10-makers-for-2022)** - 'Rising stars: 10 makers to watch in 2022'  
 January 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
 December 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
 November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - 'An Oak Leather Forest'   
