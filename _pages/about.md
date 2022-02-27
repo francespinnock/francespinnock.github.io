@@ -13,19 +13,19 @@ Frances Pinnock (b. 1990) lives and works in London.
 
 <br />
 
-[Collect Art Fair ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
-Somerset House, London, UK
+[The Art of the Exceptional | Fortnum & Mason x QEST  ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
+Fortnum & Mason, 181 Piccadilly, London, UK
 
-25th - 27th February, 2022  
+9 – 29 May,  2022  
 
-Frances will be exhibiting a range of new works, including a number of Études from the latest 2021 series, as part of [Material Masters](https://www.qest.org.uk/qest-to-return-to-collect-in-2022-with-material-masters/) curated by Brian Kennedy. 
+Curated by Brian Kennedy The exhibition focuses on materiality and reveals the endless variety of approaches contemporary makers take to often very humble materials. Through the skill of their hands they turn the ordinary into the extraordinary.
 
-"The showcase investigates what has drawn each maker to their material, the unique challenges each material presents along with the skills required to overcome these, and the role that QEST has played on each maker’s journey to becoming a material master."
 
 <br />
 <hr />
 ## Group Exhibitions
-  
+
+2022&nbsp;&nbsp;&nbsp; **Collect 2022** - QEST, London 
 2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
