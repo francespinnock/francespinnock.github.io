@@ -13,12 +13,14 @@ Frances Pinnock (b. 1990) lives and works in London.
 
 <br />
 
-[The Art of the Exceptional | Fortnum & Mason x QEST  ](https://www.craftscouncil.org.uk/collect-art-fair) | [Queen Elizabeth Scholarship Trust (QEST)](https://www.qest.org.uk/)  
+The Art of the Exceptional | Fortnum & Mason x QEST 
 Fortnum & Mason, 181 Piccadilly, London, UK
 
-9 – 29 May,  2022  
+Full exhibition runs 14 March – 19 June,  2022  
 
-Curated by Brian Kennedy The exhibition focuses on materiality and reveals the endless variety of approaches contemporary makers take to often very humble materials. Through the skill of their hands they turn the ordinary into the extraordinary.
+Frances will be exhibiting 9 - 29 May
+
+Curated by Brian Kennedy this exhibition focuses on materiality and reveals the endless variety of approaches contemporary makers take to often very humble materials. Through the skill of their hands they turn the ordinary into the extraordinary.
 
 
 <br />
