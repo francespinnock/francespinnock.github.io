@@ -18,7 +18,7 @@ Fortnum & Mason, 181 Piccadilly, London, UK
 
 Full exhibition runs 14 March – 19 June,  2022  
 
-Frances will be showing as part of the third exhibition - **Leather | Metal | Cloth**  9 - 29 May
+Frances will be showing as part of **Leather | Metal | Cloth**  9 - 29 May
 
 Curated by Brian Kennedy this exhibition focuses on materiality and reveals the endless variety of approaches contemporary makers take to often very humble materials. Through the skill of their hands they turn the ordinary into the extraordinary.
 
