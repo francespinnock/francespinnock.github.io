@@ -39,8 +39,8 @@ Curated by Brian Kennedy this exhibition focuses on materiality and reveals the 
 2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 
 ## Education
-2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking** - Arts University Bournemouth
-2010&nbsp;&nbsp;&nbsp; **Fine art Foundation** - Plymouth College of Art 
+2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking** - Arts University Bournemouth  
+2011&nbsp;&nbsp;&nbsp; **Fine art Foundation** - Plymouth College of Art 
 
 ## Scholarships & Awards  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
