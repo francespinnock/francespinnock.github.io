@@ -9,7 +9,7 @@ Frances Pinnock (b. 1990) lives and works in London.
 <br />
 
 <hr />
-## Current & Upcoming Exhibitions  
+Current & Upcoming Exhibitions  
 
 <br />
 
