@@ -38,9 +38,9 @@ Curated by Brian Kennedy this exhibition focuses on materiality and reveals the 
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 
-## Public Collections 
-
-Museum Of Leathercraft, UK
+## Education
+2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking** - Arts University Bournemouth
+2010&nbsp;&nbsp;&nbsp; **Fine art Foundation** - Plymouth College of Art 
 
 ## Scholarships & Awards  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
@@ -49,7 +49,13 @@ Museum Of Leathercraft, UK
 2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
 2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association Scholarship** - The Arts Society  
-2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
+2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation 
+
+
+## Public Collections 
+
+Museum Of Leathercraft, UK
+
 
 ## Press
 
