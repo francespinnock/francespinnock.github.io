@@ -19,7 +19,7 @@ Fortnum & Mason, London
 
 A Jubilee Celebration of Makers: Fortnum & Mason (F&M) and the Queen Elizabeth Scholarship Trust (QEST) have come together to produce an iconic one-off 'Jubilee Hamper', celebrating the best of British making. All profit from its sale will provide a new scholarship so that together F&M and QEST can continue to support and foster the makers of the future. A series of 5 exhibitions, from March to June, introduce and explore the project and celebrate the wealth of talent supported by QEST. 
 
-Frances will be showing in Leather : Metal : Cloth 9 - 29 May 
+Frances will be exhibiting as part of **Leather : Metal : Cloth** 9 - 29 May 
 
 "The exhibition focuses on materiality and reveals the endless variety of approaches contemporary makers take to often very humble materials. Through the skill of their hands they turn the ordinary into the extraordinary. Unique objects, unique stories, a unique celebration of craft." 
 
