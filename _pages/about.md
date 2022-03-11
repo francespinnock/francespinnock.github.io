@@ -29,7 +29,7 @@ Curated by Brain Kennedy
 ## Group Exhibitions
 
 2022&nbsp;&nbsp;&nbsp; **[Collect 2022](https://www.qest.org.uk/collect-25-27-february-2022/)** - QEST, London  
-2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
+2022&nbsp;&nbsp;&nbsp; **[Crafted Collectables](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/)** - Sarah Myerscough Gallery, Online  
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
