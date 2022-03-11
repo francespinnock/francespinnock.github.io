@@ -13,7 +13,7 @@ Frances Pinnock (b. 1990) lives and works in London.
 
 <br />
 
-**The Art of the Exceptional | Fortnum & Mason x QEST**  
+**[The Art of the Exceptional | Fortnum & Mason x QEST](https://www.qest.org.uk/80-qest-scholars-to-feature-in-exhibition-series-at-fortnum-mason-to-celebrate-the-platinum-jubilee/?dm_i=CLZ,7RSSB,V2RDQD,VP3TA,1)**  
 Fortnum & Mason, London  
 9 - 29 MAY 2022
 
