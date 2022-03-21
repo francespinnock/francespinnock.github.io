@@ -40,8 +40,9 @@ Curated by Brain Kennedy
 2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 
 ## Education
+2022&nbsp;&nbsp;&nbsp; **Drawing Intensive Term** - Royal Drawing School  
 2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking** - Arts University Bournemouth  
-2011&nbsp;&nbsp;&nbsp; **Fine art Foundation** - Plymouth College of Art 
+ 
 
 ## Scholarships & Awards  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
