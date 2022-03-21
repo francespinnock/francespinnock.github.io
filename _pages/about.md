@@ -42,6 +42,7 @@ Curated by Brain Kennedy
 ## Education
 2022&nbsp;&nbsp;&nbsp; **Drawing Intensive Term** - Royal Drawing School  
 2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking (Fist Class)** - Arts University Bournemouth  
+2011&nbsp;&nbsp;&nbsp; **Fine Art Foundation** - Plymouth College of Art & Design
  
 
 ## Scholarships & Awards  
