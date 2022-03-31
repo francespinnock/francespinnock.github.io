@@ -39,18 +39,11 @@ Curated by Brain Kennedy
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
 2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 
-## Education
-2022&nbsp;&nbsp;&nbsp; **Drawing Intensive Term** - Royal Drawing School  
-2014&nbsp;&nbsp;&nbsp; **BA (Hons) Modelmaking** - Arts University Bournemouth
- 
 
 ## Scholarships & Awards  
-2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
-2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
-2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
-2019&nbsp;&nbsp;&nbsp; **Jill Humphreys Springboard Prize** - Cockpit Arts  
-2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
-2017&nbsp;&nbsp;&nbsp; **Heritage Craft Association Scholarship** - The Arts Society  
+2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England   
+2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts   
+2019&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation 
 
 
@@ -68,4 +61,3 @@ November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selv
 November 2021&nbsp;&nbsp;&nbsp; **House and Garden** - 'The Future In their Hands'  
 October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - 'Future Heritage 2021'  
 July 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'New Talent' - Issue 289   
-October 2020&nbsp;&nbsp;&nbsp; **QEST Magazine** - 'A Helping Hand' 
