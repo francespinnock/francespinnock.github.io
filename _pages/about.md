@@ -7,29 +7,12 @@ Frances Pinnock (b. 1990) lives and works in London.
 
 
 <br />
-
-<hr />
-## Current & Upcoming Exhibitions  
-
-<br />
-
-**[The Art of the Exceptional | Fortnum & Mason x QEST](https://www.qest.org.uk/80-qest-scholars-to-feature-in-exhibition-series-at-fortnum-mason-to-celebrate-the-platinum-jubilee/?dm_i=CLZ,7RSSB,V2RDQD,VP3TA,1)**  
-Fortnum & Mason, London  
-9 - 29 MAY 2022
-
-A Jubilee Celebration of Makers: Fortnum & Mason (F&M) and the Queen Elizabeth Scholarship Trust (QEST) have come together to produce an iconic one-off 'Jubilee Hamper', celebrating the best of British making. All profit from its sale will provide a new scholarship so that together F&M and QEST can continue to support and foster the makers of the future. A series of 5 exhibitions, from March to June, introduce and explore the project and celebrate the wealth of talent supported by QEST. 
-
-Frances will be exhibiting as part of **Leather : Metal : Cloth**  
-
-Curated by Brain Kennedy 
-
-
-<br />
 <hr />
 ## Group Exhibitions
 
-2022&nbsp;&nbsp;&nbsp; **[Collect 2022](https://www.qest.org.uk/collect-25-27-february-2022/)** - QEST, London  
-2022&nbsp;&nbsp;&nbsp; **[Crafted Collectables](https://www.sarahmyerscough.com/exhibitions/37-crafted-collectables/)** - Sarah Myerscough Gallery, Online  
+2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
+2022&nbsp;&nbsp;&nbsp; **Collect 2022** - QEST, London  
+2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex International, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
