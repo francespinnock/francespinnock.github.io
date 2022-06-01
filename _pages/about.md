@@ -4,14 +4,15 @@ subtitle:
 description: About Frances Pinnock
 ---
 Frances Pinnock (b. 1990) lives and works in London, UK.  
-
-
 <br />
 <hr />
 ## Education
  
 Arts University Bournemouth - BA (Hons) Modelmaking: 2014  
 Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
+
+<br />
+<hr />
 
 
 ## Group Exhibitions
@@ -26,7 +27,10 @@ Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
 2020&nbsp;&nbsp;&nbsp; **London Craft Week** - Cockpit Arts, London  
 2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
-2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London  
+2019&nbsp;&nbsp;&nbsp; **Open Studios** - Cockpit Arts Open Studios, London
+
+<br />
+<hr />
 
 
 ## Scholarships & Awards  
@@ -39,10 +43,16 @@ Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; **Compotition Finalist: Design in Excellence Award** - World of Wearable Art, New Zealand
 
+<br />
+<hr />
+
 
 ## Public Collections 
 
 Museum Of Leathercraft, UK
+
+<br />
+<hr />
 
 
 ## Press
