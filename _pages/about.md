@@ -6,7 +6,7 @@ description: About Frances Pinnock
 Frances Pinnock (b. 1990) lives and works in London, UK.  
 <br />
 <hr />
-## Education
+ Education
  
 Arts University Bournemouth - BA (Hons) Modelmaking: 2014  
 Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
@@ -15,7 +15,7 @@ Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
 <hr />
 
 
-## Group Exhibitions
+ Group Exhibitions
 
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect 2022** - QEST, London  
@@ -33,7 +33,7 @@ Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
 <hr />
 
 
-## Scholarships & Awards  
+ Scholarships & Awards  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **Worshipful Company of Leathersellers’ Award** - Cockpit Arts  
@@ -47,7 +47,7 @@ Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010
 <hr />
 
 
-## Public Collections 
+ Public Collections 
 
 Museum Of Leathercraft, UK
 
@@ -55,7 +55,7 @@ Museum Of Leathercraft, UK
 <hr />
 
 
-## Press
+ Press
 
 January 2022&nbsp;&nbsp;&nbsp; **[Crafts Council](https://www.craftscouncil.org.uk/stories/top-10-makers-for-2022)** - 'Rising stars: 10 makers to watch in 2022'  
 January 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
