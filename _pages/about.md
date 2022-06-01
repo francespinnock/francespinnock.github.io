@@ -10,7 +10,7 @@ Frances Pinnock (b. 1990) lives and works in London, UK
 **Education**
  
 Arts University Bournemouth - BA (Hons) Modelmaking: 2014  
-Plynouth Colege of Art and Design (UAL) - Foundation in Art and Design: 2010  
+Arts University Plymouth - Foundation in Art and Design: 2010  
 <br />
 <hr />
 
