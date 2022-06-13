@@ -68,7 +68,7 @@ description:
 {% include siema-buttons.md %}
 
 <p style="margin-left: 0; padding-bottom: 2em">
-  Photography by <a href="https://aluncallender.com/">Alun Callender</a>
+ 
 </p>
 
 </div>
