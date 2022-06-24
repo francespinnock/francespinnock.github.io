@@ -29,10 +29,10 @@ Museum of Leathercraft, UK
 
 **Grants & Awards** 
 
-2022&nbsp;&nbsp;&nbsp; **Academic Grant** - The Leathersellers' Company   
+2022&nbsp;&nbsp;&nbsp; **Academic study grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
-2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ COmpany Award** - Cockpit Arts  
+2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphrey Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **The Leathersellers' Company Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
