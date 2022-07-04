@@ -40,6 +40,7 @@ Museum of Leathercraft, UK
 2013&nbsp;&nbsp;&nbsp; **Competition Finalist: Design in Excellence Award** - World of Wearable Art, New Zealand
 <br />
 
+
 **Press**
 
 January 2022&nbsp;&nbsp;&nbsp; **[Crafts Council](https://www.craftscouncil.org.uk/stories/top-10-makers-for-2022)** - 'Rising stars: 10 makers to watch in 2022'  
