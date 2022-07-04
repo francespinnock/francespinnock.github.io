@@ -37,7 +37,7 @@ Museum of Leathercraft, UK
 2019&nbsp;&nbsp;&nbsp; **The Leathersellers' Company Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; **Competition Finalist: Design in Excellence Award** - World of Wearable Art, New Zealand
+2013&nbsp;&nbsp;&nbsp; **Competition Finalist: Design in Excellence Award** - World of Wearable Art, New Zealand  
 <br />
 
 
