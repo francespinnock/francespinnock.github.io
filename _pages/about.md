@@ -28,28 +28,30 @@ Museum of Leathercraft, UK
 <br />
 
 **Grants & Awards** 
-
-2022&nbsp;&nbsp;&nbsp; **Academic study grant** - The Leathersellers' Company   
+  
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphrey Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **The Leathersellers' Company Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
-2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; **Competition Finalist: Design in Excellence Award** - World of Wearable Art, New Zealand  
+2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association   
 <br />
 
 
 **Press**
 
-January 2022&nbsp;&nbsp;&nbsp; **[Crafts Council](https://www.craftscouncil.org.uk/stories/top-10-makers-for-2022)** - 'Rising stars: 10 makers to watch in 2022'  
+Print
 January 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
-December 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
-November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - 'An Oak Leather Forest'   
-November 2021&nbsp;&nbsp;&nbsp; **House and Garden** - 'The Future In their Hands'  
-October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - 'Future Heritage 2021'  
+December 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155
+November 2021&nbsp;&nbsp;&nbsp; **House and Garden** - 'The Future In their Hands' 
 July 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'New Talent' - Issue 289 
+
+Online
+January 2022&nbsp;&nbsp;&nbsp; **[Crafts Council](https://www.craftscouncil.org.uk/stories/top-10-makers-for-2022)** - 'Rising stars: 10 makers to watch in 2022'    
+November 2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - 'An Oak Leather Forest'   
+October 2021&nbsp;&nbsp;&nbsp; **[The Design Edit](https://thedesignedit.com/future-heritage-2021/)** - 'Future Heritage 2021'  
+
 
 
 
