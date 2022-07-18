@@ -3,14 +3,21 @@ title:
 subtitle: 
 description: About Frances Pinnock
 ---
-Frances Pinnock (b. 1990) lives and works in London, UK  
-BA (Hons) Modelmaking - Arts University Bournemouth, 2014 
+Born. 1990, Bristol, Uk  
+Lives and works in London, UK    
+<br />
 
- 
+**Education**  
+
+2022 - Current 
+MA Sculpture - Royal College of Art, UK
+
+2011 - 2014
+BA (Hons) Modelmaking - Arts University Bournemouth, UK
 <br />
 <hr />
 
-**Selected Group Exhibitions** 
+**Group Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect 2022** - QEST, London  
@@ -27,10 +34,9 @@ BA (Hons) Modelmaking - Arts University Bournemouth, 2014
 Museum of Leathercraft, UK  
 <br />
 
-**Grants & Awards** 
+**Awards** 
   
-2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
-2021&nbsp;&nbsp;&nbsp; **London Creative Network** - Cockpit Arts  
+2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England    
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphrey Springboard Prize** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **The Leathersellers' Company Award** - Cockpit Arts   
