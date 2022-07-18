@@ -10,12 +10,12 @@ Lives and works in London, UK
 
 **Education**  
 
-2022 - Current  
-MA Sculpture - Royal College of Art, UK
 
 2011 - 2014  
 BA (Hons) Modelmaking - Arts University Bournemouth, UK
 <br />
+
+
 
 **Group Exhibitions** 
 
