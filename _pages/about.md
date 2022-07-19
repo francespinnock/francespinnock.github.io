@@ -3,8 +3,8 @@ title:
 subtitle: 
 description: About Frances Pinnock
 ---
-Born 1990, Bristol (UK)  
-Lives and works in London (UK)     
+Born 1990, Bristol, UK  
+Lives and works in London, UK     
 <hr />  
 
 **Education**  
