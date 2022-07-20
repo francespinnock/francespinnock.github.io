@@ -12,7 +12,7 @@ description:
 <div>
 <img src="/images/new/sculptures/two-standing-forms/Image 1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
-	<b>Two Standing Forms, 2020-2021</b><br />
+	<b>Untitled, 2021</b><br />
 	leather, hemp, beeswax, wood<br />
 	90w x 45d x 223h cm
 </p>
