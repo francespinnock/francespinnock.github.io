@@ -1,5 +1,5 @@
 ---
-title: Untitled, 2021
+title: Untitled
 subtitle: ''
 date: 2021-10-09 00:00:00
 description: 
