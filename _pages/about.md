@@ -3,7 +3,7 @@ title:
 subtitle: 
 description: About Frances Pinnock
 ---
-Born 1990, Bristol, UK  
+B.1990 Bristol, UK  
 Lives and works in London, UK     
 <hr />  
 
@@ -44,7 +44,22 @@ BA (Hons) Modelmaking - Arts University Bournemouth, UK
 **Collections** 
 
 Museum of Leathercraft, UK  
-<br />
+<br />  
+
+
+**Press** 
+  
+Print  
+2022&nbsp;&nbsp;&nbsp; **Selvedge**  
+2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art**  
+2021&nbsp;&nbsp;&nbsp; **House and Garden**   
+2021&nbsp;&nbsp;&nbsp; **Craft Magazine** 
+
+Online  
+2022&nbsp;&nbsp;&nbsp; **Crafts Council 
+2021&nbsp;&nbsp;&nbsp; **Selvedge   
+2021&nbsp;&nbsp;&nbsp; **The Design Edit
+ 
 
 
 
