@@ -50,14 +50,14 @@ Museum of Leathercraft, UK
 **Press** 
   
 Print  
-2022&nbsp;&nbsp;&nbsp; **Selvedge**  
+2022&nbsp;&nbsp;&nbsp; **Selvedge Magazine**  
 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art**  
 2021&nbsp;&nbsp;&nbsp; **House and Garden**   
 2021&nbsp;&nbsp;&nbsp; **Craft Magazine** 
 
 Online  
-2022&nbsp;&nbsp;&nbsp; **Crafts Council 
-2021&nbsp;&nbsp;&nbsp; **Selvedge   
+2022&nbsp;&nbsp;&nbsp; **Crafts Council**  
+2021&nbsp;&nbsp;&nbsp; **Selvedge Magazine**  
 2021&nbsp;&nbsp;&nbsp; **The Design Edit
  
 
