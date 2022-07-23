@@ -58,7 +58,7 @@ Print
 Online  
 2022&nbsp;&nbsp;&nbsp; **Crafts Council**  
 2021&nbsp;&nbsp;&nbsp; **Selvedge Magazine**  
-2021&nbsp;&nbsp;&nbsp; **The Design Edit
+2021&nbsp;&nbsp;&nbsp; **The Design Edit**  
  
 
 
