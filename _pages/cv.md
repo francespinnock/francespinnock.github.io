@@ -10,7 +10,7 @@ Lives and works in London, UK
 **Education**  
 
 
-2011 - 2014  BA (Hons) Modelmaking - Arts University Bournemouth, UK  
+2011 - 2014  BA Hons Modelmaking - Arts University Bournemouth, UK  
 <br />
 
 
