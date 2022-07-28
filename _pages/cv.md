@@ -1,5 +1,5 @@
 ---
-title: 
+title: cv
 subtitle: 
 description: About Frances Pinnock
 ---
