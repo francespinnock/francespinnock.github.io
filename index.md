@@ -1,7 +1,7 @@
 ---
 layout: default
 title: Home
-description: Sculptor working in Oak bark tanned leather.
+description:
 featured_image: /images/social.jpg
 ---
 
