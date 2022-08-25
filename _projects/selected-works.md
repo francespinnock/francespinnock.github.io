@@ -55,19 +55,34 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/vessel-forms/10.jpg" />
+<img src="/images/new/sculptures/untitled-hair.jpg" />
+<p style="margin-left: 0; padding-bottom: 2em">
+	<b>Untitled (Hair), 2022</b><br />
+	leather, horse hair, mirrored glass, hemp, beeswax<br />
+	27w x 27d x 22h cm
+</p>
+</div>
+
+<div>
+<img src="/images/new/sculptures/bombard-standing-form/1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Standing Form, 2020</b><br />
 	leather, hemp, beeswax<br />
 	30w x 30d x 115h cm
 </p>
 </div>
+
+<div>
+<img src="/images/new/sculptures/portal/shrunk/1.jpg" />
+<p style="margin-left: 0; padding-bottom: 2em">
+	<b>Portal, 2022</b><br />
+	leather, hemp, beeswax<br />
+	45w x 28d x 130h cm
+</p>
+</div>
+
 </div>
 
 {% include siema-buttons.md %}
-
-<p style="margin-left: 0; padding-bottom: 2em">
-  Photography by <a href="https://aluncallender.com/">Alun Callender</a>
-</p>
 
 </div>
