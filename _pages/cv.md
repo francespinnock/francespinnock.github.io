@@ -25,9 +25,9 @@ Foundation in Art & Design, 2009 - 2010
 
 **Current / Upcoming**
 
-Formed with Future Heritage
-Design Centre Chelsea Harbour
-10th - 14th October 
+Formed with Future Heritage  
+Design Centre Chelsea Harbour  
+10th - 14th October  
 <br />
 
 
