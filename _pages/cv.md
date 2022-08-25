@@ -20,7 +20,15 @@ Arts University Plymouth
 Foundation in Art & Design, 2009 - 2010  
 <br />
 
-<hr /> 
+<hr />  
+
+
+**Current / Upcoming**
+
+Formed with Future Heritage
+Design Centre Chelsea Harbour
+10th - 14th October 
+<br />
 
 
 **Selected Exhibitions** 
