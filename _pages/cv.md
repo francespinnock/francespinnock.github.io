@@ -30,6 +30,7 @@ Design Centre Chelsea Harbour
 <br />  
 
 
+
 **Selected Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
