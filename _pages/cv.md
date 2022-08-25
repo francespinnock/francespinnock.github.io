@@ -19,7 +19,6 @@ BA Hons Modelmaking, 2011 - 2014
 Arts University Plymouth  
 Foundation in Art & Design, 2009 - 2010  
 <br />
-
 <hr />  
 
 
@@ -28,7 +27,7 @@ Foundation in Art & Design, 2009 - 2010
 **Formed with Future Heritage**  
 Design Centre Chelsea Harbour  
 10th - 14th October 2022 
-<br />
+<br />  
 
 
 **Selected Exhibitions** 
@@ -41,7 +40,7 @@ Design Centre Chelsea Harbour
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
-<br />
+<br />  
 
 
 **Awards** 
