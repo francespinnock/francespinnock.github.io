@@ -34,8 +34,8 @@ Design Centre Chelsea Harbour
 **Selected Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
-2022&nbsp;&nbsp;&nbsp; **Collect 2022** - QEST, London  
-2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
+2022&nbsp;&nbsp;&nbsp; **Collect 2022** - Somerset House, London  
+2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery  
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Olympia, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
@@ -45,7 +45,8 @@ Design Centre Chelsea Harbour
 
 
 **Awards** 
-  
+
+2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England    
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
 2019&nbsp;&nbsp;&nbsp; **Jill Humphrey Springboard Prize** - Cockpit Arts  
@@ -58,22 +59,23 @@ Design Centre Chelsea Harbour
 **Collections** 
 
 Museum of Leathercraft, UK  
+Private collections 
 <br />  
 
 
 **Press** 
   
+
 Print  
-2022&nbsp;&nbsp;&nbsp; **Selvedge Magazine**  
-2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art**  
-2021&nbsp;&nbsp;&nbsp; **House and Garden**   
-2021&nbsp;&nbsp;&nbsp; **Craft Magazine** 
+2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
+2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
+2021&nbsp;&nbsp;&nbsp; **House and Garden** - 'The Future In their Hands'  
+2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'New Talent' - Issue 289 
 
 Online  
-2022&nbsp;&nbsp;&nbsp; **Crafts Council**  
-2021&nbsp;&nbsp;&nbsp; **Selvedge Magazine**  
-2021&nbsp;&nbsp;&nbsp; **The Design Edit**  
- 
+2022&nbsp;&nbsp;&nbsp; **Crafts Council** - 'Rising stars: 10 makers to watch in 2022'  
+2021&nbsp;&nbsp;&nbsp; **[Selvedge](https://www.selvedge.org/blogs/selvedge/an-oak-leather-forest/)** - 'An Oak Leather Forest'   
+2021&nbsp;&nbsp;&nbsp; **The Design Edit** - 'Future Heritage 2021' 
 
 
 
