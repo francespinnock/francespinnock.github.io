@@ -33,7 +33,7 @@ Design Centre Chelsea Harbour
 
 
 
-**Selected Exhibitions** 
+**Group Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect 2022** - Somerset House, London  
