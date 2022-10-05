@@ -24,10 +24,12 @@ Foundation in Art & Design, 2009 - 2010
 
 **Current / Upcoming**
 
-**Formed with Future Heritage**  
+**[Formed with Future Heritage](https://www.dcch.co.uk/design-avenue/formed-with-future-heritage/formed-with-future-heritage-exhibitors/)**  
 Design Centre Chelsea Harbour  
 10th - 14th October 2022 
 <br />  
+<br />
+
 
 
 
