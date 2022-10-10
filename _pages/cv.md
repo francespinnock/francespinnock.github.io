@@ -47,8 +47,7 @@ Design Centre Chelsea Harbour
 
 
 **Scholarships & Awards** 
-
-2022&nbsp;&nbsp;&nbsp; **Leverhulme Arts Scholarship** - Leverhulme Trust / Royal College of Art  
+  
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England    
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
