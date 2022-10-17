@@ -22,22 +22,14 @@ Foundation in Art & Design, 2009 - 2010
 <hr />  
 
 
-**Current / Upcoming**
-
-**[Formed with Future Heritage](https://www.dcch.co.uk/design-avenue/formed-with-future-heritage/formed-with-future-heritage-exhibitors/)**  
-Design Centre Chelsea Harbour  
-10th - 14th October 2022 
-<br />  
-<br />
-
-
 
 
 **Group Exhibitions** 
 
+2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect 2022** - Somerset House, London  
-2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery  
+2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, London  
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + ART Fair ](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Olympia, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
