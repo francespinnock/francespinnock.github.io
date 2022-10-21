@@ -63,6 +63,7 @@ Private collections
   
 
 Print  
+2022&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'Hide and Seek' - Autumn/Winter: Issue 295  
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Review** - 'Dream Maker' - Issue 2021 - 2022   
 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
