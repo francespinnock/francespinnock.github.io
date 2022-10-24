@@ -63,12 +63,12 @@ Private collections
   
 
 Print  
-2022&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'Hide and Seek' - Autumn/Winter: Issue 295  
+2022&nbsp;&nbsp;&nbsp; **Crafts Magazine** - 'Hide and Seek' - A/W: Issue 295  
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Review** - 'Dream Maker' - Issue 2021 - 2022   
 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
 2021&nbsp;&nbsp;&nbsp; **House and Garden** - 'The Future In their Hands'  
-2021&nbsp;&nbsp;&nbsp; **Craft Magazine** - 'New Talent' - Issue 289 
+2021&nbsp;&nbsp;&nbsp; **Crafts Magazine** - 'New Talent' - Issue 289 
 
 Online  
 2022&nbsp;&nbsp;&nbsp; **Crafts Council** - 'Rising stars: 10 makers to watch in 2022'  
