@@ -5,6 +5,6 @@ description:
 featured_image: /images/social.jpg
 ---
 
-<div style="margin: 2em">
+<div style="margin:  2em">
   <img src="/images/homepage3.jpg">
 </div>
