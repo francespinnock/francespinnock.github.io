@@ -11,13 +11,13 @@ Lives and works in London, UK
 
 
 Royal College of Art  
-MA Sculpture, 2022 - 2023 
+MA Sculpture, 2023 
 
 Arts University Bournemouth  
-BA Hons Modelmaking, 2011 - 2014 
+BA Hons Modelmaking, 2014 
 
 Arts University Plymouth  
-Foundation in Art & Design, 2009 - 2010  
+Foundation in Art & Design, 2010  
 <br />
 <hr />  
 
