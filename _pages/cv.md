@@ -7,24 +7,9 @@ B.1990 Bristol, UK
 Lives and works in London, UK     
 <hr />  
 
-**Education**  
 
 
-Royal College of Art  
-MA Sculpture, 2023 
-
-Arts University Bournemouth  
-BA Hons Modelmaking, 2014 
-
-Arts University Plymouth  
-Foundation in Art & Design, 2010  
-<br />
-<hr />  
-
-
-
-
-**Group Exhibitions** 
+**Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
@@ -35,6 +20,13 @@ Foundation in Art & Design, 2010
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
+<br />  
+
+
+**Education**  
+ 
+MA Sculpture, Royal College of Art
+BA Hons Modelmaking, Arts University Bournemouth 
 <br />  
 
 
