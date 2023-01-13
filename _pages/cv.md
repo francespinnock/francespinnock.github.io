@@ -27,7 +27,6 @@ Lives and works in London, UK
  
 2023&nbsp;&nbsp;&nbsp; **MA Sculpture** - Royal College of Art  
 2014&nbsp;&nbsp;&nbsp; **BA Modelmaking** - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; **Foundation Diploma in Art & Design** - Arts University Plymouth
 <br />  
 
 
@@ -63,8 +62,8 @@ Print
 2021&nbsp;&nbsp;&nbsp; **Crafts Magazine** - 'New Talent' - Issue 289 
 
 Online  
-2022&nbsp;&nbsp;&nbsp; **Leathersellers' Review** - 'Dream Maker' - Issue 2021 - 2022
-2022&nbsp;&nbsp;&nbsp; **Crafts Council** - 'Rising stars: 10 makers to watch in 2022'  
+2022&nbsp;&nbsp;&nbsp; **Leathersellers' Review** - 'Dream Maker' - Issue 2021 - 2022  
+2022&nbsp;&nbsp;&nbsp; **Crafts Council** - '10 makers to watch in 2022'  
 2021&nbsp;&nbsp;&nbsp; **Selvedge** - 'An Oak Leather Forest'   
 2021&nbsp;&nbsp;&nbsp; **The Design Edit** - 'Future Heritage 2021' 
 
