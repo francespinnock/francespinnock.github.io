@@ -3,13 +3,19 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
-B.1990 Bristol, UK  
+b.1990 Bristol, UK  
 Lives and works in London, UK     
 <hr />  
 
 
+**Education**  
+ 
+2023&nbsp;&nbsp;&nbsp; **MA Sculpture** - Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; **BA Modelmaking** - Arts University Bournemouth  
+<br />  
 
-**Exhibitions** 
+
+**Past** 
 
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
@@ -23,21 +29,12 @@ Lives and works in London, UK
 <br />  
 
 
-**Education**  
- 
-2023&nbsp;&nbsp;&nbsp; **MA Sculpture** - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; **BA Modelmaking** - Arts University Bournemouth  
-<br />  
-
-
 **Scholarships & Awards** 
   
 2022&nbsp;&nbsp;&nbsp; **Leverhulme Art Scholarship** - Leverhulme Trust / Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England    
-2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts  
-2019&nbsp;&nbsp;&nbsp; **Jill Humphrey Springboard Prize** - Cockpit Arts  
-2019&nbsp;&nbsp;&nbsp; **The Leathersellers' Company Award** - Cockpit Arts   
+2019/20&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts      
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association   
 <br />  
