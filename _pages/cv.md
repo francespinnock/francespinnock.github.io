@@ -3,16 +3,8 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
-b. 1990 Bristol, UK  
-Lives and works in London, UK     
-<hr />  
 
-
-**Education**  
- 
-2023&nbsp;&nbsp;&nbsp; **MA Sculpture** - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; **BA Hons Modelmaking** - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; **UAL Foundation Diploma in Art and Design** - Arts University Plymouth  
+Frances Pinnock (b. 1990) is an artist living and working in London. She studied modelmaking at the Arts University Bournemouth where she specialised in puppet making. She then trained in handsewn shoemaking and had a career in bespoke leatherwork before studying sculpture at the Royal College of Art.  
 
 <br />  
 
