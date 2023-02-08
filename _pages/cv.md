@@ -3,6 +3,9 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
+b. 1990 Bristol
+Lives and works in London 
+
 
 **Education**
 
