@@ -18,6 +18,16 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 <br />  
 
 
+
+**Current & Upcoming Exhibitions** 
+
+**Hung, Drawn and Quatered** - Standpoint Gallery, London
+PV Thursday 16th March 6 - 8pm 
+Exhibition 17th - 19th March, 12-5pm 
+
+ 
+<br /> 
+
 **Past Exhibitions** 
 
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
