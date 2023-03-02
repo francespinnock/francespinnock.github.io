@@ -46,8 +46,9 @@ Public Exhibition : Friday 30th June - Monday 3rd July
 <br />  
 
 
-**Awards** 
-  
+**Scholarships & Awards** 
+
+2023&nbsp;&nbsp;&nbsp; **Gilbert Bayes Award** - Gilbert Bayes Charitable Trust / Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; **Leverhulme Art Scholarship** - Leverhulme Trust / Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
