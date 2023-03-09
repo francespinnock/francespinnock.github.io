@@ -22,7 +22,7 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 **Current & Upcoming Exhibitions** 
 
 **Hung, Drawn and Quatered** - Standpoint Gallery, London  
-PV : Thursday 16th March, 6 - 8 pm   
+PV : Friday 17th March, 6 - 8 pm   
 Exhibition : 17th - 19th March, 12-5pm  
 
 **RCA Public Exhibition, 2023** - Royal College of Art, Sculpture Studio - Battersea Campus, London  
