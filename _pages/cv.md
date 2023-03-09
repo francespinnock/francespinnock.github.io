@@ -41,8 +41,10 @@ Public Exhibition : Friday 30th June - Monday 3rd July
 2022&nbsp;&nbsp;&nbsp; **FOG Design + ART Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Olympia, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
-2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST - Design Centre Chelsea Harbour, London    
+2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London    
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
+2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London  
+2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand
 <br />  
 
 
