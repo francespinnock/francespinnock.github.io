@@ -25,9 +25,16 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 PV : Friday 17th March, 6 - 8 pm   
 Exhibition : 17th - 19th March, 12-5pm  
 
+
+**[Material Beings](https://www.londoncraftweek.com/events/material-beings/)s** - Lavery Studio, Cromwell Place, London  
+FOREST + FOUND X London Craft Week
+Exhibition : 9th - 14th May
+
+
+
 **RCA Public Exhibition, 2023** - Royal College of Art, Sculpture Studio - Battersea Campus, London  
 PV : Thursday 29th June   
-Public Exhibition : Friday 30th June - Monday 3rd July 
+Exhibition : Friday 30th June - Monday 3rd July 
 
  
 <br /> 
@@ -46,6 +53,7 @@ Public Exhibition : Friday 30th June - Monday 3rd July
 2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London  
 2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand
 <br />  
+
 
 
 **Scholarships & Awards** 
