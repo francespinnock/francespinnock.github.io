@@ -45,7 +45,7 @@ Exhibition : Friday 30th June - Monday 3rd July
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London  
 2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, London  
-2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **[FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Olympia, London  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London    
