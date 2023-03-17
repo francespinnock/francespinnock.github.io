@@ -26,7 +26,7 @@ PV : Friday 17th March, 6 - 8 pm
 Exhibition : 17th - 19th March, 12-5pm  
 
 
-**[Material Being](https://www.londoncraftweek.com/events/material-beings/)s** - Lavery Studio, Cromwell Place, London  
+**[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London  
 FOREST + FOUND | London Craft Week  
 Exhibition : 9th - 14th May
 
