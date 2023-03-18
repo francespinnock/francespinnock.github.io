@@ -21,26 +21,21 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 
 **Current & Upcoming Exhibitions** 
 
-**Hung, Drawn and Quatered** - Standpoint Gallery, London  
-PV : Friday 17th March, 6 - 8 pm   
-Exhibition : 17th - 19th March, 12-5pm  
-
-
 **[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London  
-FOREST + FOUND | London Craft Week  
+London Craft Week  
+
+MATERIAL BEINGS is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
+
 Exhibition : 9th - 14th May
 
 
-
-**RCA Public Exhibition, 2023** - Royal College of Art, Sculpture Studio - Battersea Campus, London  
-PV : Thursday 29th June   
-Exhibition : Friday 30th June - Monday 3rd July 
 
  
 <br /> 
 
 **Past Exhibitions** 
 
+2022&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London  
