@@ -26,16 +26,14 @@ London Craft Week
 
 MATERIAL BEINGS is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
 
-Exhibition : 9th - 14th May
+Exhibition : 9th - 14th May  
 
-
-
- 
 <br /> 
+
 
 **Past Exhibitions** 
 
-2022&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London  
+2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
 2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London  
@@ -46,9 +44,9 @@ Exhibition : 9th - 14th May
 2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London    
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
 2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London  
-2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand
-<br />  
+2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
 
+<br />  
 
 
 **Scholarships & Awards** 
@@ -60,7 +58,7 @@ Exhibition : 9th - 14th May
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand
+2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
 
 <br />  
 
@@ -68,8 +66,8 @@ Exhibition : 9th - 14th May
 **Collections** 
 
 Museum of Leathercraft, UK  
-<br />  
 
+<br />  
 
 
 **Press** 
