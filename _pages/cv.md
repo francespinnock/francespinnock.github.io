@@ -11,8 +11,7 @@ Lives and works in London, UK
 
 **Education**
 
-MA Sculpture - Royal College of Art, 2023  
-Drawing Intensive - Royal Drawing School, 2022
+MA Sculpture - Royal College of Art, 2023    
 BA Hons Modelmaking - Arts University Bournemouth, 2014  
 Foundation Diploma in Art & Design - Arts University Plymouth, 2010   
 
