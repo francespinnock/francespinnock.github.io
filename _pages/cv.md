@@ -56,7 +56,7 @@ Exhibition : 9th - 14th May
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts   
-2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
+2017&nbsp;&nbsp;&nbsp; **[QEST Scholarship](https://www.qest.org.uk/alumni/frances-pinnock/)** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
 
