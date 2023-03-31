@@ -4,14 +4,14 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-b. 1990, Bristol UK  
-Lives and works in London UK
+b. 1990, Bristol, UK  
+Lives and works in London, UK
 
 <br /> 
 
 **Education**
 
-MA Sculpture - Royal College of Art, 2023  
+MA Sculpture - Royal College of Art, 2023    
 BA Hons Modelmaking - Arts University Bournemouth, 2014  
 Foundation Diploma in Art & Design - Arts University Plymouth, 2010   
 
@@ -21,30 +21,31 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 
 **Current & Upcoming Exhibitions** 
 
-**Hung, Drawn and Quatered** - Standpoint Gallery, London  
-PV : Friday 17th March, 6 - 8 pm   
-Exhibition : 17th - 19th March, 12-5pm  
+**[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London, UK 
+London Craft Week  
 
-**RCA Public Exhibition, 2023** - Royal College of Art, Sculpture Studio - Battersea Campus, London  
-PV : Thursday 29th June   
-Public Exhibition : Friday 30th June - Monday 3rd July 
+MATERIAL BEINGS is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
 
- 
+Exhibition : 9th - 14th May  
+
 <br /> 
+
 
 **Past Exhibitions** 
 
-2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London  
-2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London  
-2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London  
-2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, London  
+2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
 2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
-2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Olympia, London  
-2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London  
-2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London    
-2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire  
-2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London  
-2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand
+2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
+2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London, UK    
+2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
+2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London, UK  
+2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
+
 <br />  
 
 
@@ -57,7 +58,7 @@ Public Exhibition : Friday 30th June - Monday 3rd July
 2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts   
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand
+2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
 
 <br />  
 
@@ -65,8 +66,8 @@ Public Exhibition : Friday 30th June - Monday 3rd July
 **Collections** 
 
 Museum of Leathercraft, UK  
-<br />  
 
+<br />  
 
 
 **Press** 
