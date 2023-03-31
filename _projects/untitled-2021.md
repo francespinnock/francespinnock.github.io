@@ -90,6 +90,7 @@ description:
 </p>
 </div>
 
+<!--
 <div>
 <img src="/images/new/sculptures/two-standing-forms/Image 10.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
@@ -98,6 +99,7 @@ description:
 	90w x 45d x 223h cm
 </p>
 </div>
+-->
 
 </div>
 

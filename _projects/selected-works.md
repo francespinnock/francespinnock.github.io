@@ -10,6 +10,15 @@ description:
 <div class="siema">
 
 <div>
+<img src="/images/homepage4.jpg" />
+<p style="margin-left: 0; padding-bottom: 2em">
+	<b>Penumbra Garden (Miniature), 2015</b><br />
+	leather, welsh slate, copper<br />
+	35w x 22d x 10h cm
+</p>
+</div>
+
+<div>
 <img src="/images/new/sculptures/two-standing-forms/Image 1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Untitled, 2021</b><br />
