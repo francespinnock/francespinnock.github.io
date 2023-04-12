@@ -27,6 +27,8 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 
 ‘Cut and Fold’ features a collection of works that explore the interplay between design and form, redefining surface qualities through the malleability and performative possibilities of materials. The works reveal a fluency of line, a sense of movement and a haptic sensibility. Subtle acts of sensing or bold intervention challenge the perception of works in clay, wood, metal, leather, paper and textile.  
 
+Exhibition : 29th April - 24th June 2023
+
 
 
 **[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London, UK 
