@@ -17,6 +17,7 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 
 <br />  
 
+...............................................................................................
 
 
 **Current & Upcoming Exhibitions** 
@@ -26,12 +27,12 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 
 ‘Cut and Fold’ features a collection of works that explore the interplay between design and form, redefining surface qualities through the malleability and performative possibilities of materials. The works reveal a fluency of line, a sense of movement and a haptic sensibility. Subtle acts of sensing or bold intervention challenge the perception of works in clay, wood, metal, leather, paper and textile.  
 
-<br /> 
+
 
 **[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London, UK 
 London Craft Week  
 
-MATERIAL BEINGS is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
+'Material Beings' is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
 
 Exhibition : 9th - 14th May  
 
