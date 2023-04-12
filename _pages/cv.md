@@ -31,7 +31,7 @@ Exhibition : 29th April - 24th June 2023
 
 <br />  
 
-**[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London, UK 
+**[Material Beings](https://www.londoncraftweek.com/events/material-beings/)** - Lavery Studio, Cromwell Place, London, UK  
 London Craft Week  
 
 'Material Beings' is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
