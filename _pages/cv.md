@@ -23,7 +23,8 @@ Foundation Diploma in Art & Design - Arts University Plymouth, 2010
 **Current & Upcoming Exhibitions** 
 
 
-**[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK 
+**[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
+Hauser & Wirth
 
 ‘Cut and Fold’ features a collection of works that explore the interplay between design and form, redefining surface qualities through the malleability and performative possibilities of materials. The works reveal a fluency of line, a sense of movement and a haptic sensibility. Subtle acts of sensing or bold intervention challenge the perception of works in clay, wood, metal, leather, paper and textile.  
 
@@ -41,7 +42,7 @@ Exhibition : 9th - 14th May
 <br /> 
 
 
-**Past Exhibitions** 
+**Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
