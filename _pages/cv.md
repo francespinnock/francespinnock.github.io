@@ -46,16 +46,16 @@ London Craft Week
 
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason x QEST, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - QEST, Fortnum & Mason, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - QEST, Somerset House, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
-2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, Fort Mason Center, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;&nbsp; **Artefact** - Design Centre Chelsea Harbour, London, UK  
+2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST, Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London, UK  
-2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
+2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - TSB Arena, Wellington, New Zealand  
 
 <br />  
 
