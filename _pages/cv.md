@@ -42,7 +42,7 @@ London Craft Week
 <br /> 
 
 
-**Selected Exhibitions** 
+**Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
