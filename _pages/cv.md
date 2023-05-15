@@ -12,8 +12,7 @@ Lives and works in London, UK
 **Education**
 
 MA Sculpture - Royal College of Art, 2023    
-BA Hons Modelmaking - Arts University Bournemouth, 2014  
-Foundation Diploma in Art & Design - Arts University Plymouth, 2010   
+BA Hons Modelmaking - Arts University Bournemouth, 2014     
 
 <br />  
 
@@ -32,18 +31,11 @@ Hauser & Wirth
 
 <br />  
 
-**[Material Beings](https://www.eventbrite.com/cc/material-beings-london-craft-week-2023-1997899)** - Lavery Studio, Cromwell Place, London, UK  
-London Craft Week  
-
-'Material Beings' is an artist-led exhibition pushing the conceptual nature of craft practice through a radical rethinking of materiality. Curated by studio collective Forest + Found, the exhibition brings together artists Max Bainbridge, Chloé Rosetta Bell, Abigail Booth, Marlène Huissoud, Alida Kuzemczak-Sayer, Francisca Onumah, Frances Pinnock and Marcin Rusak. 
-
-10th - 14th May  
-
-<br /> 
-
+ 
 
 **Group Exhibitions** 
 
+2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - QEST, Fortnum & Mason, London, UK  
