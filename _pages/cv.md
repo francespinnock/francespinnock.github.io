@@ -11,8 +11,8 @@ Lives and works in London, UK
 
 **Education**
 
-MA Sculpture - Royal College of Art    
-BA Hons Modelmaking - Arts University Bournemouth    
+MA Sculpture - Royal College of Art 2023  
+BA Hons Modelmaking - Arts University Bournemouth 2014   
 
 <br />  
 
@@ -27,11 +27,10 @@ Hauser & Wirth
 
 29th April - 24th June 2023  
 
-<br />
 
 Royal College of Art Degree Show - MA Sculpture, Battersea Campus, London, UK
 
-30th June - 3rd July 
+30th June - 3rd July  
 PV 29th June 
 
 <br />  
