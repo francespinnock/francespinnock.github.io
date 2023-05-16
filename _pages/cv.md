@@ -11,8 +11,8 @@ Lives and works in London, UK
 
 **Education**
 
-MA Sculpture - Royal College of Art, 2023    
-BA Hons Modelmaking - Arts University Bournemouth, 2014     
+MA Sculpture - Royal College of Art    
+BA Hons Modelmaking - Arts University Bournemouth    
 
 <br />  
 
@@ -25,9 +25,14 @@ BA Hons Modelmaking - Arts University Bournemouth, 2014
 **[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
 Hauser & Wirth
 
-‘Cut and Fold’ features a collection of works that explore the interplay between design and form, redefining surface qualities through the malleability and performative possibilities of materials. The works reveal a fluency of line, a sense of movement and a haptic sensibility. Subtle acts of sensing or bold intervention challenge the perception of works in clay, wood, metal, leather, paper and textile.  
-
 29th April - 24th June 2023  
+
+<br />
+
+Royal College of Art Degree Show - MA Sculpture, Battersea Campus, London, UK
+
+30th June - 3rd July 
+PV 29th June 
 
 <br />  
 
@@ -38,16 +43,15 @@ Hauser & Wirth
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - QEST, Fortnum & Mason, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - QEST, Somerset House, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Crafted Collectables** - Sarah Myerscough Gallery, Online  
-2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, Fort Mason Center, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
+2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London, UK    
+2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST, Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
-2014&nbsp;&nbsp;&nbsp; **New Blades - Degree Show** - Holborn Studios, London, UK  
-2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - TSB Arena, Wellington, New Zealand  
+2014&nbsp;&nbsp;&nbsp; **Arts University Bournemouth Degree Show** - London, UK  
+2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
 
 <br />  
 
