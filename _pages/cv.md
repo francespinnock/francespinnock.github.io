@@ -28,11 +28,7 @@ Hauser & Wirth
 
 <br />
 
-Royal College of Art Degree Show - MA Sculpture, Battersea Campus, London, UK
-30th June - 3rd July   
-
-<br />  
-
+  
  
 
 **Group Exhibitions** 
