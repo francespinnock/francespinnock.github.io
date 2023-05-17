@@ -4,10 +4,10 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-Frances Pinnock (b.1990) 
+(b.1990)  
 Lives and works in London, UK.
 
-BA Modelmaking Arts University Bournemouth 
+BA Modelmaking Arts University Bournemouth  
 MA Sculpture Royal College of Art.  
 
 
