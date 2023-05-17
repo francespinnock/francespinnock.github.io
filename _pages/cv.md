@@ -24,13 +24,11 @@ BA Hons Modelmaking - Arts University Bournemouth 2014
 
 **[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
 Hauser & Wirth
-
 29th April - 24th June 2023  
 
-
+<br />
 
 Royal College of Art Degree Show - MA Sculpture, Battersea Campus, London, UK
-
 30th June - 3rd July   
 
 <br />  
