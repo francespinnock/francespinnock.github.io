@@ -23,7 +23,8 @@ BA Hons Modelmaking - Arts University Bournemouth 2014
 
 
 **[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
-Hauser & Wirth
+Hauser & Wirth  
+
 29th April - 24th June 2023  
 
 <br />
