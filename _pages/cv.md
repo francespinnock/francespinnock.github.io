@@ -28,10 +28,10 @@ Hauser & Wirth
 29th April - 24th June 2023  
 
 
+
 Royal College of Art Degree Show - MA Sculpture, Battersea Campus, London, UK
 
-30th June - 3rd July  
-PV 29th June 
+30th June - 3rd July   
 
 <br />  
 
