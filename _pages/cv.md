@@ -75,6 +75,7 @@ Museum of Leathercraft, UK
   
 
 Print  
+2023&nbsp;&nbsp;&nbsp; **The World of Interiors** - 'Network Art & Antiques' - June 23  
 2022&nbsp;&nbsp;&nbsp; **Crafts Magazine** - 'Hide and Seek' - Issue 295     
 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
