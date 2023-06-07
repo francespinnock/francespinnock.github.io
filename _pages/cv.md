@@ -65,7 +65,7 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 2022&nbsp;&nbsp;&nbsp; **Leverhulme Art Scholarship** - Leverhulme Trust / Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
-2020&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts   
+2019&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts Studio Grant  
 2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
