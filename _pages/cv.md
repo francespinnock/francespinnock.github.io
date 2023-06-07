@@ -22,12 +22,21 @@ Foundation Diploma Art & Design - Arts University Plymouth, 2010
 **Current & Upcoming Exhibitions** 
 
 
-**[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
+**[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)**
+Make Hauser & Wirth, Somerset, UK  
 Hauser & Wirth  
 
-29th April - 24th June 2023  
+29th April - 24th June, 2023  
 
-<br />
+<br />  
+
+[RCA2023 : Royal College of Art](https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/) 
+MA Sculpture - Sculpture Studios, Battersea Campus, Howie Street, London, SW11 3AN
+
+30th June - 3rd July, 2023
+Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm.
+
+
 
   
  
