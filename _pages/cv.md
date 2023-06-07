@@ -34,12 +34,12 @@ Hauser & Wirth
 MA Sculpture - Sculpture Studios, Battersea Campus, Howie Street, London, SW11 3AN
 
 30th June - 3rd July, 2023
-Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm.
+Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm  
+
+<br /> 
 
 
 
-  
- 
 
 **Group Exhibitions** 
 
