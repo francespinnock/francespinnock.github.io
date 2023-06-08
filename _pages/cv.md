@@ -10,7 +10,7 @@ With a background in puppetry, she graduated in 2014 with a BA in Modelmaking fr
 
 In 2022 she received the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art. Her practice encompasses drawing, sculpture and movement.
 
-Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2022), artist led  ‘Material Beings’ at Cromwell Place, London (2022) and FOG Design + Art, San Francisco with Sarah Myerscough Gallery (2021). 
+Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), artist led  ‘Material Beings’ at Cromwell Place, London (2023), FOG Design + Art, San Francisco with Sarah Myerscough Gallery (2022) and 'Future Heritage' at Decorex, London (2021).  
 
 She lives and works in London. 
 
