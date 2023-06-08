@@ -4,15 +4,14 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-(b.1990)  
-Lives and works in London, UK.
+Frances Pinnock (b. 1990) is a British artist living and working in London. 
+With a background in puppetry, she graduated in 2014 with a BA in Modelmaking from the Arts University Bournemouth, working in bespoke leatherwork before establishing her studio practice in 2018. 
+
+In 2022 she received the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art. Her practice now encompasses drawing, sculpture and movement.
+
+Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2022), artist led  ‘Material Beings’ at Cromwell Place, London (2022) and Fog Design + Art, San Francisco with Sarah Myerscough Gallery (2021). 
 
  
-MA Sculpture - Royal College of Art, 2023  
-BA Modelmaking - Arts University Bournemouth, 2014  
-Foundation Diploma Art & Design - Arts University Plymouth, 2010
-
-
 
 <br />  
 
@@ -70,8 +69,15 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
 
-<br />  
+<br />   
 
+**Education**
+
+MA Sculpture - Royal College of Art, 2023  
+BA Modelmaking - Arts University Bournemouth, 2014  
+Foundation Diploma Art & Design - Arts University Plymouth, 2010  
+
+<br />
 
 **Collections** 
 
