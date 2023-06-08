@@ -8,7 +8,7 @@ Frances Pinnock (b. 1990) is a British artist.
 
 With a background in puppetry, she graduated in 2014 with a BA in Modelmaking from the Arts University Bournemouth, before working in bespoke leatherwork and establishing her studio practice in 2018. In 2022 she received the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
-Her work explores formulaic and intuative movement through repetition and gesture and the dualism of motion and stasis. Her sculptures play with mirroring and symmetry and ideas around an implied or risidual motion within static objects. Her practice encompasses drawing, sculpture and movement.
+Her work explores formulaic and intuative movement through repetition and gesture, and the dualism of motion and stasis. Her sculptures play with mirroring and symmetry and ideas around an implied or residual motion within static objects. Her practice encompasses drawing, sculpture and movement.
 
 Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), artist led  ‘Material Beings’ at Cromwell Place, London (2023) and FOG Design + Art, San Francisco (2022).  
 
