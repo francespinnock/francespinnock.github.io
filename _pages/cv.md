@@ -54,16 +54,7 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
 
 <br />  
-
-
-**Education**
-
-MA Sculpture - Royal College of Art, 2023  
-BA Modelmaking - Arts University Bournemouth, 2014  
-Foundation Diploma Art & Design - Arts University Plymouth, 2010  
-
-<br />  
-
+  
 
 **Awards** 
 
