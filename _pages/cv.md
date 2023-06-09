@@ -4,7 +4,7 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-(b. 1990) Bristol, Uk.  
+(b. 1990) Bristol, UK.  
 Lives and works in London.  
 
 Frances Pinnock received a BA from the Arts University Bournemouth in 2014 before working in bespoke leatherwork. She established her studio practice in 2018 and was awarded funding from Arts Council England and the Queen Elizabeth Scholarship Trust. In 2022 she received the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
