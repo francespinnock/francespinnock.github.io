@@ -6,11 +6,11 @@ description: About Frances Pinnock
 
   
 
-Frances Pinnock (b.1990) is an artist working across sculpture, drawing and movement. She received a BA from the Arts University Bournemouth in 2014 before working in bespoke leatherwork and establishing her studio practice in 2018.  
+Frances Pinnock (b. 1990) is an artist working across sculpture, drawing and movement. She received a BA from the Arts University Bournemouth in 2014 before working in bespoke leatherwork and establishing her studio practice in 2018.  
 
 Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust (QEST) and in 2022 was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
-Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), artist-led ‘Material Beings’ at Cromwell Place, London (2023) and FOG Design + Art, San Francisco with Sarah Myerscough Gallery (2022).
+Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), artist-led ‘Material Beings’ at Cromwell Place, London (2023) and FOG Design + Art, San Francisco (2022).
 
 She lives and works in London. 
 
