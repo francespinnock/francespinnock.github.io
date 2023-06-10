@@ -8,7 +8,7 @@ description: About Frances Pinnock
 
 Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. With a background in puppetry she received a BA from the Arts University Bournemouth in 2014 before working in bespoke leatherwork and establishing her studio practice in 2018.  
 
-She works primerily in skin based materials and employs hand stitching as a method of fabrication. Recent sculptures incorporate additional collected objects and materials such as copper, brass, horsehair, wool, wax and shellac. 
+She works primerily in skin based materials and employs hand stitching as a method of fabrication. Recent sculptures incorporate collected objects and materials such as copper, brass, horsehair, wool, wax and shellac. 
 
 Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust (QEST) and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
