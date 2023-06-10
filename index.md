@@ -6,5 +6,5 @@ featured_image: /images/social.jpg
 ---
 
 <div style="margin:  2em">
-  <img src="/images/homepage4.jpg">
+  <img style="max-height: calc(100vh - 4em)" src="/images/homepage5.jpg">
 </div>

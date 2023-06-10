@@ -10,7 +10,7 @@ description:
 <div class="siema">
 
 <div>
-<img src="/images/new/sculptures/osculare/1 full.jpg" />
+<img src="/images/new/sculptures/osculare/2 full.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Osculare (Miniature), 2021</b><br />
 	leather, hemp, beeswax<br />
@@ -19,13 +19,14 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/osculare/2 full.jpg" />
+<img src="/images/new/sculptures/osculare/1 full.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Osculare (Miniature), 2021</b><br />
 	leather, hemp, beeswax<br />
 	23w x 13d x 64h cm
 </p>
 </div>
+
 
 <div>
 <img src="/images/new/sculptures/osculare/3 Detail.jpg" />
@@ -36,6 +37,16 @@ description:
 </p>
 </div>
 
+<div>
+<img src="/images/new/sculptures/osculare/7 Detail.jpg" />
+<p style="margin-left: 0; padding-bottom: 2em">
+	<b>Osculare (Miniature), 2021</b><br />
+	leather, hemp, beeswax<br />
+	23w x 13d x 64h cm
+</p>
+</div>
+
+<!--
 <div>
 <img src="/images/new/sculptures/osculare/4.Detail.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
@@ -62,15 +73,8 @@ description:
 	23w x 13d x 64h cm
 </p>
 </div>
+-->
 
-<div>
-<img src="/images/new/sculptures/osculare/7 Detail.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-	<b>Osculare (Miniature), 2021</b><br />
-	leather, hemp, beeswax<br />
-	23w x 13d x 64h cm
-</p>
-</div>
 
 </div>
 
