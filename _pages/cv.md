@@ -12,7 +12,7 @@ She works primerily in skin based materials and employs hand stitching as a meth
 
 Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust (QEST) and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
-Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), artist-led ‘Material Beings’ at Cromwell Place, London (2023) and FOG Design + Art, San Francisco (2022).
+Recent exhibitions include [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/) at Make Hauser and Wirth, Somerset (2023), artist-led [Material Beings](https://www.forest-and-found.com/material-beings) at Cromwell Place, London (2023) and [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/), San Francisco (2022).
 
 She lives and works in London. 
 
@@ -43,14 +43,14 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 
 **Group Exhibitions** 
 
-2023&nbsp;&nbsp;&nbsp; **[Material Beings](https://www.forest-and-found.com/material-beings)** - Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London, UK    
-2022&nbsp;&nbsp;&nbsp; **[FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
-2021&nbsp;&nbsp;&nbsp; **[Welding Cultures](https://soshiro.co/blogs/past-events/welding-cultures)** - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST, Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp; **Arts University Bournemouth Degree Show** - London, UK  
