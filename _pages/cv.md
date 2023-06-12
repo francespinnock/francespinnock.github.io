@@ -6,11 +6,11 @@ description: About Frances Pinnock
 
   
 
-Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. With a background in puppetry she received a BA from the Arts University Bournemouth in 2014 before working in bespoke leatherwork and establishing her studio practice in 2018.  
+Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. From a background in puppetry she received a BA from the Arts University Bournemouth (2014) before working in bespoke leatherwork and establishing her studio practice in 2018.  
 
 She works primerily in skin based materials and employs hand stitching as a method of fabrication. Recent sculptures incorporate collected objects and materials such as copper, brass, horsehair, wool, wax and shellac. 
 
-Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust (QEST) and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
+Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
 Recent exhibitions include [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/) at Make Hauser and Wirth, Somerset (2023), artist-led [Material Beings](https://www.forest-and-found.com/material-beings) at Cromwell Place, London (2023) and [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/), San Francisco (2022).
 
@@ -32,8 +32,8 @@ Hauser & Wirth
 
 <br />  
 
-[RCA2023 : Royal College of Art](https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
-MA Sculpture - Sculpture Studios, Battersea Campus, Howie Street, London, SW11 3AN
+[RCA2023 : Sculpture (https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
+Linbury Sculpture Studio, RCA Battersea, Howie Street, London, SW11 3AN
 
 30th June - 3rd July, 2023  
 Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm  
@@ -92,7 +92,7 @@ Museum of Leathercraft, UK
 **Press** 
   
 Print  
-2023&nbsp;&nbsp;&nbsp; **The World of Interiors** - 'Network Art & Antiques' - June 23  
+2023&nbsp;&nbsp;&nbsp; **The World of Interiors** - 'Art & Antiques' - June 23  
 2022&nbsp;&nbsp;&nbsp; **Crafts Magazine** - 'Hide and Seek' - Issue 295     
 2022&nbsp;&nbsp;&nbsp; **Selvedge** - 'Keeping Warm' - Issue 104  
 2021&nbsp;&nbsp;&nbsp; **Ateliers d'Art** - 'Tirer le fil d'Ariane' - Issue 155  
