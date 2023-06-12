@@ -12,7 +12,7 @@ She works primerily in skin based materials and employs hand stitching as a meth
 
 Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
 
-Recent exhibitions include [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/) at Make Hauser and Wirth, Somerset (2023), artist-led [Material Beings](https://www.forest-and-found.com/material-beings) at Cromwell Place, London (2023) and [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/), San Francisco (2022).
+Recent exhibitions include [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/) at Make Hauser and Wirth, Somerset (2023), artist-led [Material Beings](https://www.forest-and-found.com/material-beings) at Cromwell Place, London (2023) and FOG Design + Art Fair, San Francisco (2022).
 
 She lives and works in London. 
 
