@@ -32,7 +32,7 @@ Hauser & Wirth
 
 <br />  
 
-[RCA2023] : MA Sculpture (https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
+[RCA2023 : MA Sculpture] (https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
 Linbury Sculpture Studio, RCA Battersea, Howie Street, London, SW11 3AN
 
 30th June - 3rd July, 2023  
