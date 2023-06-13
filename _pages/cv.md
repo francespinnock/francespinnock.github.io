@@ -3,10 +3,10 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
-b. 1990, Bristol (UK)
+b. 1990, Bristol (UK)  
 Currently lives and works in London (UK)
 
-For all enquiries please contact:
+For all enquiries please contact:  
 studio@francespinnock.com 
 
 <br />  
