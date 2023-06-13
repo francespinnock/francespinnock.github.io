@@ -6,7 +6,7 @@ description: About Frances Pinnock
 
   
 
-Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. From a background in puppetry she received a BA from the Arts University Bournemouth (2014) before working in bespoke leatherwork and establishing her studio practice in 2018.  
+Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. From a background in puppetry she received a BA from the Arts University Bournemouth (2014) before going on to work in bespoke leatherwork and establish her studio practice in 2018.  
 
 She works primerily in skin based materials and employs hand stitching as a method of fabrication. Recent sculptures incorporate collected objects and materials such as copper, brass, horsehair, wool, wax and shellac. 
 
