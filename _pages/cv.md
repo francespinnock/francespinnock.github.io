@@ -3,20 +3,19 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
+b. 1990, Bristol (UK)
+Currently lives and works in London (UK)
 
-  
-
-Frances Pinnock (b. 1990, Bristol UK) is an artist working across sculpture and drawing. From a background in puppetry she received a BA from the Arts University Bournemouth (2014) before going on to work in bespoke leatherwork and establish her studio practice in 2018.  
-
-She works primerily in skin based materials and employs hand stitching as a method of fabrication. Recent sculptures incorporate collected objects and materials such as copper, brass, horsehair, wool, wax and shellac. 
-
-Frances has recieved awards from Arts Council England and the Queen Elizabeth Scholarship Trust and was awarded the Leverhulme Arts Scholarship to study for an MA in Sculpture at the Royal College of Art.
-
-Recent exhibitions include [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/) at Make Hauser and Wirth, Somerset (2023), artist-led [Material Beings](https://www.forest-and-found.com/material-beings) at Cromwell Place, London (2023) and FOG Design + Art Fair, San Francisco (2022).
-
-She lives and works in London. 
+For all enquiries please contact:
+studio@francespinnock.com 
 
 <br />  
+
+**Education**  
+
+MA Sculpture - Royal College of Art, 2023  
+BA Modelmaking - Arts University Bournemouth, 2014  
+Foundation Art and Design - Arts University Plymouth, 2010
 
 ...............................................................................................
 
@@ -41,7 +40,7 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 <br /> 
 
 
-**Group Exhibitions** 
+**Selected Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
@@ -57,15 +56,6 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
 
 <br />  
-
-
-**Education**  
-
-MA Sculpture - Royal College of Art, 2023  
-BA Modelmaking - Arts University Bournemouth, 2014  
-Foundation Art and Design - Arts University Plymouth, 2010  
-
-<br />
   
 
 **Awards** 
@@ -89,7 +79,7 @@ Museum of Leathercraft, UK
 <br />  
 
 
-**Press** 
+**Selected Press** 
   
 Print  
 2023&nbsp;&nbsp;&nbsp; **The World of Interiors** - 'Art & Antiques' - June 23  
