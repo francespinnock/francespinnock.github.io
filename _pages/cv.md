@@ -42,7 +42,7 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 **Selected Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
-2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quatered** - Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - Somerset House, London, UK    
