@@ -4,7 +4,7 @@ subtitle:
 description: About Frances Pinnock
 ---
 b. 1990, Bristol (UK)  
-Currently lives and works in London (UK)
+Lives and works in London (UK)
 
 
 
@@ -12,23 +12,15 @@ Currently lives and works in London (UK)
 
 **Education**  
 
-MA Sculpture - Royal College of Art, 2023  
-BA Modelmaking - Arts University Bournemouth, 2014  
-Foundation Art and Design - Arts University Plymouth, 2010
+2022 - 2023 MA Sculpture - Royal College of Art  
+2011 - 2014 BA Modelmaking - Arts University Bournemouth  
+2009 - 2010 Foundation in Art and Design - Arts University Plymouth 
 
 ...............................................................................................
 
 
 **Current & Upcoming Exhibitions** 
 
-
-**[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)**
-Make Hauser & Wirth, Somerset, UK  
-Hauser & Wirth  
-
-29th April - 24th June, 2023  
-
-<br />  
 
 [RCA2023 : MA Sculpture](https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
 Linbury Sculpture Studio, RCA Battersea, Howie Street, London, SW11 3AN
@@ -41,6 +33,7 @@ Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm
 
 **Selected Group Exhibitions** 
 
+2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
