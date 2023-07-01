@@ -12,9 +12,9 @@ Lives and works in London (UK)
 
 **Education**  
 
-MA Sculpture - Royal College of Art, 2022 - 2023  
-BA Modelmaking - Arts University Bournemouth, 2011 - 2014  
-Foundation in Art and Design - Arts University Plymouth, 2009 - 2010 
+MA Fine Art Sculpture | Royal College of Art, 2022 - 2023  
+BA Modelmaking | Arts University Bournemouth, 2011 - 2014  
+Foundation in Art and Design | Arts University Plymouth, 2009 - 2010 
 
 ...............................................................................................
 
@@ -22,7 +22,7 @@ Foundation in Art and Design - Arts University Plymouth, 2009 - 2010
 **Current & Upcoming Exhibitions** 
 
 
-[RCA2023 : MA Sculpture](https://www.rca.ac.uk/news-and-events/events/rca2023-rca-battersea-kensington/)  
+[RCA2023 : MA Sculpture](https://2023.rca.ac.uk/students/frances-pinnock/)  
 Linbury Sculpture Studio, RCA Battersea, Howie Street, London, SW11 3AN
 
 30th June - 3rd July, 2023  
