@@ -22,7 +22,7 @@ Foundation in Art and Design - Arts University Plymouth, 2010
 
 **Selected Group Exhibitions** 
 
-2023&nbsp;&nbsp;&nbsp; **RCA2023 Sculpture Exhibition** - Royal COllege of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; **RCA2023 Sculpture Exhibition** - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
