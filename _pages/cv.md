@@ -19,20 +19,10 @@ Foundation in Art and Design - Arts University Plymouth, 2010
 ...............................................................................................
 
 
-**Current & Upcoming Exhibitions** 
-
-
-[RCA2023 : MA Sculpture](https://2023.rca.ac.uk/students/frances-pinnock/)  
-Linbury Sculpture Studio, RCA Battersea, Howie Street, London, SW11 3AN
-
-30th June - 3rd July, 2023  
-Open 12–6pm daily, with a late opening on Friday 30 June until 7.30pm  
-
-<br /> 
-
 
 **Selected Group Exhibitions** 
 
+2023&nbsp;&nbsp;&nbsp; **RCA2023 Sculpture Exhibition** - Royal COllege of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
