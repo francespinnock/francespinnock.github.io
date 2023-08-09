@@ -12,7 +12,7 @@ Lives and works in London (UK)
 
 **Education**  
 
-MA Fine Art Sculpture - Royal College of Art, 2023  
+MA Sculpture - Royal College of Art, 2023  
 BA Modelmaking - Arts University Bournemouth, 2014  
 Foundation in Art and Design - Arts University Plymouth, 2010 
 
@@ -22,7 +22,7 @@ Foundation in Art and Design - Arts University Plymouth, 2010
 
 **Selected Group Exhibitions** 
 
-2023&nbsp;&nbsp;&nbsp; **RCA2023** - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; **RCA Degree Show 2023** - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
