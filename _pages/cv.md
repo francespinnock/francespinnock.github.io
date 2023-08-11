@@ -3,10 +3,15 @@ title: CV
 subtitle: 
 description: About Frances Pinnock
 ---
-b. 1990, Bristol (UK)  
-Lives and works in London (UK)
+Frances Pinnock (b. 1990, Bristol UK) is a London based artist. She received a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Following her BA Frances trained in hand sewn shoemaking and worked for ten years in bespoke accessories alongside her studio practice, developing the technical skills that play into her sculpture. 
 
+Pattern cutting and hand stitching underpin the the making of her works that often pertain to the body and utilise materials such as leather and collected objects; drawing references from art history, puppetry, historical clothing and literature. 
 
+<br />
+
+Recent exhibitions include ‘Cut and Fold’ at Make Hauser and Wirth, Somerset (2023), ‘Hung, Drawn and Quartered’ at Standpoint Gallery, London (2023), artist-led ‘Material Beings’ at Cromwell Place, London (2023), FOG Design + Art Fair, San Francisco (2022) with Sarah Myerscough Gallery.
+
+...............................................................................................
 
 <br />  
 
@@ -16,7 +21,7 @@ MA Fine Art Sculpture - Royal College of Art, 2023
 BA Modelmaking - Arts University Bournemouth, 2014  
 Fine Art Foundation Diploma - Arts University Plymouth, 2010 
 
-...............................................................................................
+<br /> 
 
 
 
