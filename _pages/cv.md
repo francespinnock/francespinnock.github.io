@@ -28,7 +28,7 @@ Fine Art Foundation Diploma - Arts University Plymouth, 2010
 **Selected Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **RCA Degree Show 2023** - Royal College of Art, London, UK  
-2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp; **Cut and Fold[https://www.hauserwirth.com/make/41222-cut-and-fold/]** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
