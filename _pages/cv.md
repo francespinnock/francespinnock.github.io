@@ -31,7 +31,7 @@ Fine Art Foundation Diploma - Arts University Plymouth, 2010
 
 **Selected Group Exhibitions** 
 
-2023&nbsp;&nbsp;&nbsp; **[RCA Degree Show 2023](https://2023.rca.ac.uk/students/frances-pinnock/)** - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; **RCA Degree Show 2023** - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; **[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; **[Material Beings](https://www.cromwellplace.com/whats-on/material-beings)** - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; **[Hung, Drawn and Quartered](https://www.standpointlondon.co.uk/gallery/2023/hung-drawn/index.php)** - Standpoint Gallery, London, UK  
