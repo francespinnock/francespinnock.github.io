@@ -37,7 +37,7 @@ Fine Art Foundation Diploma - Arts University Plymouth, 2010
 2023&nbsp;&nbsp;&nbsp; **[Hung, Drawn and Quartered](https://www.standpointlondon.co.uk/gallery/2023/hung-drawn/index.php)** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
-2022&nbsp;&nbsp;&nbsp; **[Collect Art Fair}(https://www.craftscouncil.org.uk/collect-art-fair)** - QEST - Somerset House, London, UK    
+2022&nbsp;&nbsp;&nbsp; **[Collect Art Fair](https://www.craftscouncil.org.uk/collect-art-fair)** - QEST - Somerset House, London, UK    
 2022&nbsp;&nbsp;&nbsp; **[FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; **[Welding Cultures](https://soshiro.co/blogs/past-events/welding-cultures)** - SoShiro Gallery, London, UK  
