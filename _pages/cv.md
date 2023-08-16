@@ -5,7 +5,7 @@ description: About Frances Pinnock
 ---
 <br />
 
-Frances Pinnock (b. 1990, Bristol UK) is an artist living and working in London, UK. She creates sculptures that pertain to the body and posess something of the uncanny in their anthropomorphism. Pattern cutting and hand stitching underpin the making of her works that utilise materials such as leather and collected objects; drawing references from art history, puppetry, historical clothing and literature.
+Frances Pinnock (b. 1990, Bristol UK) is an artist living and working in London, UK. She creates sculptures that pertain to the body and possess something of the uncanny in their anthropomorphism. Pattern cutting and hand stitching underpin the making of her works that utilise materials such as leather and collected objects; drawing references from art history, puppetry, historical clothing and literature.
 
 From a background in puppet making Pinnock studied for a BA in Modelmaking at the Arts University Bournemouth and an MA in Sculpture at the Royal College of Art. She trained in hand sewn shoemaking and worked for ten years in bespoke accessories alongside her studio practice, developing the technical and material knowledge that plays into her work. 
 
