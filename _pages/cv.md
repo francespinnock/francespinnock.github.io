@@ -6,8 +6,9 @@ description: About Frances Pinnock
 
 <br />  
 
-Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London, UK. She creates works that pertain to the body and possess something of the uncanny in their anthropomorphism and material particularity. Pattern cutting and hand stitching underpin the making of her sculptures that utilise materials such as leather and collected objects and draw references from art history, puppetry, historical clothing and literature.  
-From a background in puppet making Pinnock studied for a BA in Modelmaking  and an MA in Sculpture. Following her BA she trained in hand sewn shoemaking and worked for ten years in bespoke accessories alongside her studio practice, developing the technical and material knowledge that plays into her work.  
+Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London, UK. She creates works that pertain to the body and possess something of the uncanny in their anthropomorphism and material particularity. Pattern cutting and hand stitching underpin the making of her sculptures that utilise materials such as leather and collected objects and draw references from art history, puppetry, historical clothing and literature.
+
+From a background in puppet making Pinnock studied for a BA in Modelmaking and an MA in Sculpture. Following her BA she trained in hand sewn shoemaking and worked for a number of years in bespoke accessories alongside her studio practice, developing the technical and material knowledge that plays into her work.  
 
 <br /> 
 
@@ -27,15 +28,15 @@ Fine Art Foundation Diploma - Arts University Plymouth, 2010
 **Selected Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; **RCA Degree Show 2023** - Royal College of Art, London, UK  
-2023&nbsp;&nbsp;&nbsp; **[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/)** - Make Hauser & Wirth, Somerset, UK  
-2023&nbsp;&nbsp;&nbsp; **[Material Beings](https://www.cromwellplace.com/whats-on/material-beings)** - Cromwell Place, London, UK  
-2023&nbsp;&nbsp;&nbsp; **[Hung, Drawn and Quartered](https://www.standpointlondon.co.uk/gallery/2023/hung-drawn/index.php)** - Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
-2022&nbsp;&nbsp;&nbsp; **[Collect Art Fair](https://www.craftscouncil.org.uk/collect-art-fair)** - QEST - Somerset House, London, UK    
-2022&nbsp;&nbsp;&nbsp; **[FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/)** - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - QEST - Somerset House, London, UK    
+2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
-2021&nbsp;&nbsp;&nbsp; **[Welding Cultures](https://soshiro.co/blogs/past-events/welding-cultures)** - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST, Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp; **Arts University Bournemouth Degree Show** - London, UK  
