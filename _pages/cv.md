@@ -4,15 +4,6 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-<br />  
-
-Frances Pinnock's sculptures pertain to the body and possess something of the uncanny in their anthropomorphism and material particularity. Oscillating between figure and inanimate object, they invite with detail and imply a sense of latent or residual motion while remaining static. Pattern cutting and hand stitching underpin the making of her works that utilise materials such as leather and collected objects and draw references from art history, puppetry, historical clothing and literature.
-
-From a background in puppet making Pinnock studied for a BA in Modelmaking and an MA in Sculpture. Following her BA she trained in hand sewn shoemaking and worked for a number of years in bespoke accessories alongside her studio practice, developing the technical and material knowledge that plays into her work. 
- 
-<br /> 
-
-____________________________________________________________________________________________________________________________________
 
 <br /> 
 
