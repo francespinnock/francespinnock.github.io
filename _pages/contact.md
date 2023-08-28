@@ -4,9 +4,9 @@ subtitle:
 description: Contact Frances Pinnock
 featured_image: /images/demo/demo-landscape.jpg
 ---
-**Studio Contact**
+<br />
 
-For all enquiries please contact:  
+**Studio Contact**
  
 <studio@francespinnock.com>
 
