@@ -24,34 +24,33 @@ Foundation Diploma Art and Design - Arts University Plymouth, 2010
 
 **Selected Group Exhibitions** 
 
-2023&nbsp;&nbsp;&nbsp; **RCA Degree Show 2023** - Royal College of Art, London, UK  
-2023&nbsp;&nbsp;&nbsp; **Cut and Fold** - Make Hauser & Wirth, Somerset, UK  
-2023&nbsp;&nbsp;&nbsp; **Material Beings** - Cromwell Place, London, UK  
-2023&nbsp;&nbsp;&nbsp; **Hung, Drawn and Quartered** - Standpoint Gallery, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Formed with Future Heritage** - Design Centre Chelsea Harbour, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Art of the Exceptional** - Fortnum & Mason, London, UK  
-2022&nbsp;&nbsp;&nbsp; **Collect Art Fair** - QEST - Somerset House, London, UK    
-2022&nbsp;&nbsp;&nbsp; **FOG Design + Art Fair** - Sarah Myerscough Gallery, San Fransisco, USA  
-2021&nbsp;&nbsp;&nbsp; **Future Heritage** - Decorex, London, UK  
-2021&nbsp;&nbsp;&nbsp; **Welding Cultures** - SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;&nbsp; **Artefact** - QEST, Design Centre Chelsea Harbour, London, UK  
-2019&nbsp;&nbsp;&nbsp; **Messums** - Messums, London & Wiltshire, UK  
-2014&nbsp;&nbsp;&nbsp; **Arts University Bournemouth Degree Show** - London, UK  
-2013&nbsp;&nbsp;&nbsp; **World of Wearable Art** - Wellington, New Zealand  
+2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
+2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK   
+2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK    
+2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - Sarah Myerscough Gallery, San Fransisco, USA  
+2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
+2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
+2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
+2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
   
 
 **Awards** 
 
-2023&nbsp;&nbsp;&nbsp; **Gilbert Bayes Award** - Gilbert Bayes Charitable Trust / Royal College of Art  
-2022&nbsp;&nbsp;&nbsp; **Leverhulme Art Scholarship** - Leverhulme Trust / Royal College of Art   
-2022&nbsp;&nbsp;&nbsp; **Leathersellers' Academic Grant** - The Leathersellers' Company   
-2021&nbsp;&nbsp;&nbsp; **Developing your Creative Practice** - Arts Council England  
-2019&nbsp;&nbsp;&nbsp; **The Leathersellers’ Company Award** - Cockpit Arts Studio Grant  
-2017&nbsp;&nbsp;&nbsp; **QEST Scholarship** - Garfield Weston Foundation  
-2017&nbsp;&nbsp;&nbsp; **The Arts Society Scholarship** - Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; **Design in Excellence Award Finalist** - World of Wearable Art, New Zealand  
+2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Award - Royal College of Art  
+2022&nbsp;&nbsp;&nbsp; Leverhulme Art Scholarship - Royal College of Art   
+2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
+2021&nbsp;&nbsp;&nbsp; DYCP - Arts Council England  
+2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Company Award - Cockpit Arts 
+2017&nbsp;&nbsp;&nbsp; QEST Scholarship - Garfield Weston Foundation  
+2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship - Heritage Crafts Association  
+2013&nbsp;&nbsp;&nbsp; Design in Excellence Award Finalist - World of Wearable Art, New Zealand  
 
 <br />   
 
