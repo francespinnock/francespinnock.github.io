@@ -6,8 +6,6 @@ featured_image: /images/demo/demo-landscape.jpg
 ---
 <br />
 
-**Studio Contact**
- 
-<studio@francespinnock.com>
+For enquiries please contact:
 
-<br />
+[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
