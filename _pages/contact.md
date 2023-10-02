@@ -8,4 +8,10 @@ featured_image: /images/demo/demo-landscape.jpg
 
 For enquiries please contact:
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
+[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)   
+
+<br />
+
+Studio contact :
+
+studio@francespinnock.com 
