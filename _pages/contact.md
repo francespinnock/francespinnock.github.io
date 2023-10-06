@@ -6,7 +6,7 @@ featured_image: /images/demo/demo-landscape.jpg
 ---
 <br />
 
-For enquiries please contact:
+For enquiries please contact :
 
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)   
 
