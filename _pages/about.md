@@ -20,6 +20,13 @@ BA Modelmaking - Arts University Bournemouth, 2014
 
 <br /> 
 
+**Upcoming Exhibitions**  
+
+TEFAF Maastricht | March 9-14, 2024
+Sarah Myerscough Gallery  
+
+<br /> 
+
 
 **Selected Group Exhibitions** 
 
