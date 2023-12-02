@@ -17,13 +17,13 @@ Lives and works in London, UK
 
 MA Sculpture - Royal College of Art, 2023  
 BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
-UAL Foundation Diploma in Art & Design - Arts University Plymouth, 2010 
+Foundation Diploma Art & Design - Arts University Plymouth, 2010 
 
 <br /> 
 
 **Upcoming Exhibitions**  
 
-TEFAF Maastricht | March 9-14, 2024  
+[TEFAF Maastricht](https://www.tefaf.com/fairs/tefaf-maastricht) | March 9-14, 2024  
 Sarah Myerscough Gallery  
 
 <br /> 
