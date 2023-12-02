@@ -16,7 +16,7 @@ Lives and works in London, UK
 **Education**  
 
 MA Sculpture - Royal College of Art, 2023  
-BA Modelmaking - Arts University Bournemouth, 2014  
+BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
 UAL Foundation Diploma in Art & Design - Arts University Plymouth, 2010 
 
 <br /> 
@@ -51,7 +51,7 @@ Sarah Myerscough Gallery
 **Awards** 
 
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Award - Royal College of Art  
-2022&nbsp;&nbsp;&nbsp; Leverhulme Art Scholarship - Royal College of Art   
+2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; DYCP - Arts Council England  
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Company Award - Cockpit Arts  
