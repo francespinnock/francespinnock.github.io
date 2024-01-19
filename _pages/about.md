@@ -37,7 +37,7 @@ Sarah Myerscough Gallery
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK   
 2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK    
-2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/) - Sarah Myerscough Gallery, San Fransisco, USA  
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
