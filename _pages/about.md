@@ -31,30 +31,24 @@ Sarah Myerscough Gallery
 
 **Selected Group Exhibitions** 
 
-2023
-    &nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
-    &nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
-    &nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
-    &nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 
-2022
-    &nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK   
-    &nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK    
-    &nbsp;&nbsp;&nbsp; [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/) - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
+2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp; [FOG Design + Art Fair](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/) - Sarah Myerscough Gallery, San Fransisco, USA  
 
-2021  
-    &nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
-    &nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
-    &nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
+2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
+2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
 
-2019
-    &nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
+2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
 
-2014
-    &nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
 
-2013
-    &nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
+2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
   
