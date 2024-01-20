@@ -32,7 +32,7 @@ Sarah Myerscough Gallery
 **Selected Group Exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
-                       Cut and Fold - Make Hauser & Wirth, Somerset, UK  
+   &nbsp;&nbsp;&nbsp;  Cut and Fold - Make Hauser & Wirth, Somerset, UK  
                        Material Beings - Cromwell Place, London, UK  
                        Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 
