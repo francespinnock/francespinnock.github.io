@@ -7,17 +7,10 @@ description: About Frances Pinnock
 
 <br /> 
 
-b. 1990 Bristol, UK  
-Lives and works in London, UK  
+Frances Pinnock b. 1990 Bristol, UK is an artist living and working in London.  
+She holds an MA in Sculpture from the Royal College of Art and a BA (Hons) in Modelmaking from the Arts University Bournemouth.
 
 <br /> 
-
-
-**Education**  
-
-MA Fine Art Sculpture - Royal College of Art, 2023  
-BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
-Foundation Diploma Art & Design - Arts University Plymouth, 2010 
 
 <br /> 
 
@@ -25,6 +18,7 @@ Foundation Diploma Art & Design - Arts University Plymouth, 2010
 
 [TEFAF Maastricht](https://www.tefaf.com/fairs/tefaf-maastricht) | March 9-14, 2024  
 Sarah Myerscough Gallery  
+
 
 <br /> 
 
