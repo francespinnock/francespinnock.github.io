@@ -11,6 +11,7 @@ For enquiries please contact :
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
 +44 (0) 207 495 0069  
 info@sarahmyerscough.com
+<br />  
 <br />
 
 Studio contact :  
