@@ -22,9 +22,9 @@ Her works have been exhibited internationally,  with recent exhibitions includin
 
 2024
 
-[TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |Maastricht, NL
-Sarah Myerscough Gallery  
-9 - 14 March
+[TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
+9 - 14 March  
+Group exhibition with Sarah Myerscough Gallery 
 
 
 
