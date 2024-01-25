@@ -12,7 +12,7 @@ She holds an MA in Sculpture from the Royal College of Art and a BA in Modelmaki
 
 Her works have been exhibited internationally,  with recent exhibitions including ‘Cut and Fold’ Make Hauser & Wirth, Somerset UK (2023), ‘Material Beings’ Cromwell Place, London UK (2023), 'Hung, Drawn and Quartered', Standpoint Gallery, London UK (2023) and FOG Design + Art Fair, San Francisco, USA (2022). 
 
-She is represented by Sarah Myerscough Gallery. 
+ 
 
 <br /> 
 
