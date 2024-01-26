@@ -7,49 +7,49 @@ description: About Frances Pinnock
 
 <br /> 
 
-Frances Pinnock (b.1990, Bristol) is an artist living and working in London. 
-She holds an MA in Sculpture from the Royal College of Art and a BA in Modelmaking from the Arts University Bournemouth. 
+b.1990, Bristol (UK)  
+Lives and works in London (UK)  
 
-Her works have been exhibited internationally,  with recent exhibitions including ‘Cut and Fold’ Make Hauser & Wirth, Somerset UK (2023), ‘Material Beings’ Cromwell Place, London UK (2023), 'Hung, Drawn and Quartered', Standpoint Gallery, London UK (2023) and FOG Design + Art Fair, San Francisco, USA (2022). 
+<br />
 
- 
+
+**Education**  
+
+MA Sculpture - Royal College of Art, 2022 - 2023
+BA (Hons) Modelmaking Arts University Bournemouth, 2011 - 2014
+Fine Art Foundation Diploma - Arts University Plymouth 2009 - 2010 
 
 <br /> 
 
 <br /> 
 
-**Forthcoming Exhibitions**  
+**Upcoming Exhibitions**  
 
 2024
 
 [TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
 9 - 14 March  
-Group exhibition with Sarah Myerscough Gallery 
+Group presentation with Sarah Myerscough Gallery, London 
 
 
 
 <br /> 
 
 
-**Selected Group Exhibitions** 
+**Selected Group Exhibitions and Fairs** 
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
-
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK  
 2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - Sarah Myerscough Gallery, San Fransisco, USA  
-
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
-
+2021&nbsp;&nbsp;&nbsp; Artefact Fair - Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
-
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
-
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
