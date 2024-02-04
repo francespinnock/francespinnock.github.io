@@ -59,7 +59,7 @@ Group presentation with Sarah Myerscough Gallery, London
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Award - Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
-2021&nbsp;&nbsp;&nbsp; DYCP - Arts Council England  
+2021&nbsp;&nbsp;&nbsp; Developing Your Creative Practice - Arts Council England  
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Company Award - Cockpit Arts  
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship - Heritage Crafts Association  
