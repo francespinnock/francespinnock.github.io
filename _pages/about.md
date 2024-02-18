@@ -28,7 +28,7 @@ Foundation Art & Design - Arts University Plymouth, 2010
 
 [TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
 9 - 14 March  
-Sarah Myerscough Gallery, London 
+Sarah Myerscough Gallery, London  
 Stand 494
 
 
