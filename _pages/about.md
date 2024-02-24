@@ -15,7 +15,7 @@ Lives and works in London (UK)
 
 **Education**  
 
-MA Sculpture - Royal College of Art, 2023  
+MA Fine Art Sculpture - Royal College of Art, 2023  
 BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
 Foundation Art & Design - Arts University Plymouth, 2010 
 
@@ -31,6 +31,7 @@ Foundation Art & Design - Arts University Plymouth, 2010
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), London  
 Stand 494
 
+Sarah Myerscough Gallery will be presenting two new works from the Vignette series, 'Dress for the job you want (Accoutrements and Illuminations)' 2023 and 'Steady Metronome (Custome Melody)' 2024. 
 
 <br /> 
 
