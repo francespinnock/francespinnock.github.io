@@ -17,7 +17,7 @@ Lives and works in London (UK)
 
 MA Fine Art Sculpture - Royal College of Art, 2023  
 BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
-Foundation Art & Design - Arts University Plymouth, 2010 
+Foundation in Art & Design - Arts University Plymouth, 2010 
 
 <br />
 
@@ -58,7 +58,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 
 **Awards** 
 
-2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Award - Royal College of Art  
+2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Grant - Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; Developing Your Creative Practice - Arts Council England  
