@@ -8,7 +8,7 @@ description:
 
 <div class="siema">
 <div>
-<img src="/images/new/sculptures/parallel-repeat/1.png" />
+<img src="/images/new/sculptures/parallel-repeat/1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Parallel Repeat (Feet Parallel), 2023</b><br />
 Leather, wool, copper, steel, hemp, beeswax<br />
@@ -18,7 +18,7 @@ Image by Forest + Found<br />
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/parallel-repeat/2.png" />
+<img src="/images/new/sculptures/parallel-repeat/2.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Parallel Repeat (Feet Parallel), 2023</b><br />
 Leather, wool, copper, steel, hemp, beeswax<br />
@@ -28,7 +28,7 @@ Image by Forest + Found<br />
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/parallel-repeat/3.png" />
+<img src="/images/new/sculptures/parallel-repeat/3.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Parallel Repeat (Feet Parallel), 2023</b><br />
 Leather, wool, copper, steel, hemp, beeswax<br />
@@ -38,7 +38,7 @@ Image by Forest + Found<br />
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/parallel-repeat/4.png" />
+<img src="/images/new/sculptures/parallel-repeat/4.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Parallel Repeat (Feet Parallel), 2023</b><br />
 Leather, wool, copper, steel, hemp, beeswax<br />

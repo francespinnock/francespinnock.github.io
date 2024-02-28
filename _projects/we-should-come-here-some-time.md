@@ -8,14 +8,14 @@ description:
 
 <div class="siema">
 <div>
-<img src="/images/new/sculptures/we-should-come-here-some-time/1.png" />
+<img src="/images/new/sculptures/we-should-come-here-some-time/1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 <b>We should come here some time I, II, & III, 2022</b><br />
 Leather, hemp, beeswax, horse hair
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/we-should-come-here-some-time/2.png" />
+<img src="/images/new/sculptures/we-should-come-here-some-time/2.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 <b>We should come here some time I, 2022</b><br />
 Leather, hemp, beeswax, horse hair<br />
@@ -23,7 +23,7 @@ Leather, hemp, beeswax, horse hair<br />
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/we-should-come-here-some-time/3.png" />
+<img src="/images/new/sculptures/we-should-come-here-some-time/3.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 <b>We should come here some time II, 2022</b><br />
 Leather, hemp, beeswax, horse hair<br />
@@ -31,7 +31,7 @@ Leather, hemp, beeswax, horse hair<br />
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/we-should-come-here-some-time/4.png" />
+<img src="/images/new/sculptures/we-should-come-here-some-time/4.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 <b>We should come here some time III, 2022</b><br />
 Leather, hemp, beeswax, horse hair<br />

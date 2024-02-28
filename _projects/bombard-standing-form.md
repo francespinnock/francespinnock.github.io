@@ -8,7 +8,7 @@ description:
 
 <div class="siema">
 <div>
-<img src="/images/new/sculptures/bombard-standing-form/shrunk/1.png" />
+<img src="/images/new/sculptures/bombard-standing-form/shrunk/1.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Standing Form, 2020</b><br />
 	leather, hemp, beeswax<br />
@@ -16,7 +16,7 @@ description:
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/bombard-standing-form/shrunk/2.png" />
+<img src="/images/new/sculptures/bombard-standing-form/shrunk/2.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Standing Form, 2020</b><br />
 	leather, hemp, beeswax<br />
@@ -24,7 +24,7 @@ description:
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/bombard-standing-form/shrunk/3.png" />
+<img src="/images/new/sculptures/bombard-standing-form/shrunk/3.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Standing Form, 2020</b><br />
 	leather, hemp, beeswax<br />
@@ -32,7 +32,7 @@ description:
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/bombard-standing-form/shrunk/4.png" />
+<img src="/images/new/sculptures/bombard-standing-form/shrunk/4.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Bombard Standing Form, 2020</b><br />
 	leather, hemp, beeswax<br />
