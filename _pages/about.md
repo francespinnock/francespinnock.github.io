@@ -6,7 +6,7 @@ description: About Frances Pinnock
 
 
 <br /> 
-Frances Pinnock's practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create works that possess something of the uncanny in their materiality and configuration. Her work combines material assemblage, gestural mark making and meticulous hand processing, layering influences from art history, literature, puppetry, dance, and historical garment making with narratives grounded in subjective experience.  
+Frances Pinnock is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create sculptures that possess something of the uncanny in their materiality and configuration. Her work combines material assemblage, gestural mark making and meticulous hand processing, layering influences from art history, literature, puppetry, dance, and historical garment making with narratives grounded in subjective experience.  
 
 <br />
 
