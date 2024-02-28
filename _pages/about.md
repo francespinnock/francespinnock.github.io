@@ -28,7 +28,7 @@ Foundation in Art & Design - Arts University Plymouth, 2010
 [TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
 9 - 14 March  
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), London  
-Stand 494
+Booth 494
 
 Sarah Myerscough Gallery will be presenting two new works from the Vignette series, 
 'Dress for the job you want (Accoutrements and Illuminations)' 2023 and 'Steady Metronome (Custom Melody)' 2024. 
