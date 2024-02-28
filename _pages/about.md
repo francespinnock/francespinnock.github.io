@@ -6,16 +6,10 @@ description: About Frances Pinnock
 
 
 <br /> 
-Frances Pinnock is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create sculptures that possess something of the uncanny in their materiality and configuration. Her work combines material assemblage, gestural mark making and meticulous hand processing, layering influences from art history, literature, puppetry, dance, and historical garment making with narratives grounded in subjective experience.  
+Frances Pinnock (b. 1990, Bristol UK) is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create sculptures that possess something of the uncanny in their materiality and configuration. Her work combines material assemblage, gestural mark making and meticulous hand processing, layering influences from art history, literature, puppetry, dance, and historical garment making with narratives grounded in subjective experience.  
 
 <br />
 
-
-
-b.1990, Bristol, UK  
-Lives and works in London, UK  
-
-<br />
 
 
 **Education**  
@@ -48,14 +42,19 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
+
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK  
 2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - Sarah Myerscough Gallery, San Fransisco, USA  
+
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp; Artefact Fair - Design Centre Chelsea Harbour, London, UK  
+
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
+
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
+
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
