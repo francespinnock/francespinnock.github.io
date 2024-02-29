@@ -23,7 +23,7 @@ for f in _projects/*; do
       F_RESIZED_SIZE=$(du -k "$F_RESIZED" | cut -f1)
       echo "Resized image size: $F_RESIZED_SIZE KB"
       echo "Replacing image path in HTML..."
-      sed -i "s/$RAW_F/$RAW_F_RESIZED/g" $f
+      sed -i "s!$RAW_F!$RAW_F_RESIZED!g" $f
     fi
   done
 done

@@ -8,7 +8,7 @@ description:
 <div class="siema">
 
 <div>
-<img src="/images/new/sculptures/volatilia/1.jpg" />
+<img src="/images/new/sculptures/volatilia/1.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Volatilia (Dream with Pelican), 2023</b><br />
     Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
@@ -17,7 +17,7 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/volatilia/2.jpg" />
+<img src="/images/new/sculptures/volatilia/2.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Volatilia (Dream with Pelican), 2023</b><br />
     Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
@@ -26,7 +26,7 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/volatilia/3.jpg" />
+<img src="/images/new/sculptures/volatilia/3.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Volatilia (Dream with Pelican), 2023</b><br />
     Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
@@ -35,7 +35,7 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/volatilia/4.jpg" />
+<img src="/images/new/sculptures/volatilia/4.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Volatilia (Dream with Pelican), 2023</b><br />
     Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
@@ -44,7 +44,7 @@ description:
 </div>
 
 <div>
-<img src="/images/new/sculptures/volatilia/5.jpg" />
+<img src="/images/new/sculptures/volatilia/5.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Volatilia (Dream with Pelican), 2023</b><br />
     Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
