@@ -16,15 +16,6 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
 
 
 
-**Education**  
-
-MA Fine Art Sculpture - Royal College of Art, 2023  
-BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
-Foundation in Art & Design - Arts University Plymouth, 2010 
-
-<br />
-
-
 **Upcoming Exhibitions**  
 
 2024
@@ -62,6 +53,15 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
+
+
+**Education**  
+
+MA Fine Art Sculpture - Royal College of Art, 2023  
+BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
+Foundation in Art & Design - Arts University Plymouth, 2010 
+
+<br />
   
 
 **Awards** 
