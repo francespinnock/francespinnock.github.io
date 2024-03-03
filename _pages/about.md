@@ -16,7 +16,7 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
 
 
 
-**Upcoming Exhibitions**  
+**Forthcoming exhibitions**  
 
 2024
 
@@ -31,7 +31,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 <br /> 
 
 
-**Selected Group Exhibitions and Fairs** 
+**Selected past group exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
