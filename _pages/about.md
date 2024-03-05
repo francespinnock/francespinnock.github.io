@@ -19,9 +19,9 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
 **Forthcoming exhibitions**  
 
 
+2024  
 
-2024&nbsp;&nbsp;&nbsp; [TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
-
+[TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
 9 - 14 March  
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), London  
 Booth 494
