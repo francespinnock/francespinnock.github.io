@@ -6,15 +6,26 @@ description: About Frances Pinnock
 
 
 <br /> 
-Frances Pinnock (b. 1990, Bristol UK) is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create works that possess something of the uncanny in their materiality and configuration. Her sculptures combine meticulous hand processing, gestural mark making and assemblage, layering influences from Surrealism, puppetry, dance, and historical dress with narratives grounded in subjective experience. 
+Frances Pinnock is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create works that possess something of the uncanny in their materiality and configuration. Her sculptures combine meticulous hand processing, gestural mark making and assemblage, layering influences from Surrealism, puppetry, dance, and historical dress with narratives grounded in subjective experience. 
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
 
 <br />  
 <br />
+______________________________________________________________________________________________________________________________________
+<br />  
+
+b. 1990, Bristol, UK  
 
 
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation in Art & Design - Arts University Plymouth 
+
+<br />
 
 **Forthcoming exhibitions**  
 
@@ -55,16 +66,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 
 <br />  
 
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation in Art & Design - Arts University Plymouth 
-
-<br />
   
-
 **Awards** 
 
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Grant - Royal College of Art  
