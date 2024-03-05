@@ -10,7 +10,7 @@ Frances Pinnock is an artist living and working in London. Her practice is an ex
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
-.............................................................................................................................
+                      ...................................................................
  
 <br />  
 b. 1990, Bristol, UK  
@@ -29,9 +29,9 @@ b. 1990, Bristol, UK
 
 2024  
 
-[TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
+TEFAF |  Maastricht, NL  
 9 - 14 March  
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), London  
+Sarah Myerscough Gallery, London  
 Booth 494
 
 Sarah Myerscough Gallery will be presenting two new works from the Vignette series, 
