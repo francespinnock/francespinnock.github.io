@@ -16,7 +16,8 @@ info@sarahmyerscough.com
 
 Studio contact :  
 
-frances@francespinnock.com
+studio@francespinnock.com  
+[Instagram](https://www.instagram.com/francespinnock/)
 <br />
 
 
