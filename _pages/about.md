@@ -18,9 +18,10 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
 
 **Forthcoming exhibitions**  
 
-2024
 
-[TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
+
+2024&nbsp;&nbsp;&nbsp; [TEFAF](https://www.tefaf.com/fairs/tefaf-maastricht) |  Maastricht, NL  
+
 9 - 14 March  
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), London  
 Booth 494
@@ -31,7 +32,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 <br /> 
 
 
-**Selected past group exhibitions** 
+**Group exhibitions** 
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
@@ -57,9 +58,9 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 
 **Education**  
 
-MA Fine Art Sculpture - Royal College of Art, 2023  
-BA (Hons) Modelmaking - Arts University Bournemouth, 2014  
-Foundation in Art & Design - Arts University Plymouth, 2010 
+2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation in Art & Design - Arts University Plymouth 
 
 <br />
   
