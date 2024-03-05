@@ -10,17 +10,17 @@ Frances Pinnock is an artist living and working in London. Her practice is an ex
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
-
+ 
 <br />  
-<br />
-_____________________________________________________________________________________________________________________________
 
-<br />  
+**CV**
 
 b. 1990, Bristol, UK  
 
+<br /> 
 
-**Education**  
+
+EDUCATION  
 
 2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
 2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
@@ -28,8 +28,8 @@ b. 1990, Bristol, UK
 
 <br />
 
-**Forthcoming exhibitions**  
 
+FORTHCOMING EXHIBITIONS  
 
 2024  
 
@@ -44,7 +44,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 <br /> 
 
 
-**Group exhibitions** 
+SELECTED GROUP EXHIBITIONS 
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
@@ -68,7 +68,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 <br />  
 
   
-**Awards** 
+AWARDS 
 
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Grant - Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
@@ -82,7 +82,7 @@ Sarah Myerscough Gallery will be presenting two new works from the Vignette seri
 <br />   
 
 
-**Collections** 
+COLLECTIONS 
 
 Museum of Leathercraft, UK  
 
