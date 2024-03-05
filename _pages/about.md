@@ -13,8 +13,6 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
 .............................................................................................................................
  
 <br />  
-**CV**
-
 b. 1990, Bristol, UK  
 <br /> 
 
