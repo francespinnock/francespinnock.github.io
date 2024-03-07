@@ -16,7 +16,6 @@ For enquiries please contact :
 Studio contact :  
 
 studio@francespinnock.com  
-[Instagram](https://www.instagram.com/francespinnock/)
 <br />
 
 
