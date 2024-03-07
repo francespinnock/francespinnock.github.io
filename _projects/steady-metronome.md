@@ -16,7 +16,7 @@ description:
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/steady-metronome/2.r.jpg" />
+<img src="/images/new/sculptures/steady-metronome/3.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Steady Metronome (Custom Melody), 2024</b><br />
     Leather, hemp, beeswax, rayon, cotton, brass, lead <br />
@@ -24,7 +24,7 @@ description:
 </p>
 </div>
 <div>
-<img src="/images/new/sculptures/steady-metronome/3.r.jpg" />
+<img src="/images/new/sculptures/steady-metronome/2.r.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Steady Metronome (Custom Melody), 2024</b><br />
     Leather, hemp, beeswax, rayon, cotton, brass, lead <br />
