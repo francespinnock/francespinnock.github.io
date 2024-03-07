@@ -10,7 +10,7 @@ description:
 <div class="siema">
 
 <div>
-<img src="/images/homepage4.jpg" />
+<img src="/images/home/homepage4.jpg" />
 <p style="margin-left: 0; padding-bottom: 2em">
 	<b>Penumbra Garden (Miniature), 2015</b><br />
 	leather, welsh slate, copper<br />
