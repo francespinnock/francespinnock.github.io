@@ -18,7 +18,7 @@ b. 1990, Bristol, UK
 
 **Education**  
 
-2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
+2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
 2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth 
 
