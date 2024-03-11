@@ -30,7 +30,8 @@ b. 1990, Bristol, UK
 
 TEFAF |  Maastricht, NL  
 9 - 14 March  
-Sarah Myerscough Gallery, London  
+Sarah Myerscough Gallery, London 
+Group presentation [Monolith](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/)  
 Booth 494
 
 <br /> 
