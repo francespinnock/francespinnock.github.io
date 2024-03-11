@@ -15,7 +15,7 @@ For enquiries please contact :
 
 Studio contact :  
 
-studio@francespinnock.com  
+frances@francespinnock.com  
 <br />
 
 
