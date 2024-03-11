@@ -26,8 +26,7 @@ b. 1990, Bristol, UK
 
 
 **Current exhibitions**  
-
-2024  
+  
 
 TEFAF |  Maastricht, NL  
 9 - 14 March  
