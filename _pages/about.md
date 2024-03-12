@@ -17,6 +17,14 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 
 <br />
 
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth  
+
+<br />
+
 
 **Current exhibitions**  
   
@@ -50,15 +58,6 @@ Booth 494
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
 
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
-
-<br />  
-
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth  
 
 <br /> 
 
