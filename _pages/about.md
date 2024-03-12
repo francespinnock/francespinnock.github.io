@@ -10,17 +10,10 @@ Frances Pinnock is an artist living and working in London. Her practice is an ex
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
+Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art, for which she recieved the Leverhulme Arts Scholarship (2022). Her works have been exhibitions internationally at TEFAF - Maastrict (2024) and FOG Design + Art Fair - San Fransisco (2022) with Sarah Myerscough Gallery, London. Recent group exhibitions include Cut and Fold - Make Hauser & Wirth, Somerset (2023), Material Beings - Cromwell Place, London (2023) and Hung, Drawn and Quartered - Standpoint Gallery, London (2023).   
+
   _________________________________________________________________________________________________________                     
  
-<br />  
-b. 1990, Bristol, UK  
-<br /> 
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth 
 
 <br />
 
@@ -59,6 +52,12 @@ Booth 494
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
 <br />  
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth 
 
   
 **Awards** 
