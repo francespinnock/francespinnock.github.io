@@ -30,13 +30,13 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 
 2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 
-2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; MA RCA Sculpture Degree Show - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
-2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp; Collect Art Fair - Somerset House, London, UK. QEST  
 2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - San Fransisco, USA. Sarah Myerscough Gallery   
 
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
@@ -45,7 +45,7 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
 
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
+2014&nbsp;&nbsp;&nbsp; BA Arts University Bournemouth Degree Show - London, UK  
 
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
