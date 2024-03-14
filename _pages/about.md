@@ -6,11 +6,11 @@ description: About Frances Pinnock
 
 
 <br /> 
-Frances Pinnock is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, her works layer influences from Surrealism, puppetry, dance, and historical dress with narratives grounded in subjective experience. 
+Frances Pinnock is an artist living and working in London. Her practice is an exploration of junctures, understood both temporally and materially. She utilises collected objects and organic media – variously, leather, vellum, wax and hair – to create works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, her works layer influences from Surrealism, puppetry, dance, and garment making with narratives grounded in subjective experience. 
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
-Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally at TEFAF, Maastricht (2024) and FOG Design + Art, San Francisco (2022) with Sarah Myerscough Gallery. Recent group exhibitions include 'Cut and Fold', Make Hauser & Wirth, Somerset (2023), 'Material Beings', Cromwell Place, London (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London (2023). 
+Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally at TEFAF, Maastricht (2024) and FOG Design + Art, San Francisco (2022). Recent group exhibitions include 'Cut and Fold', Make Hauser & Wirth, Somerset (2023), 'Material Beings', Cromwell Place, London (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London (2023). 
 
   _________________________________________________________________________________________________________                     
  
@@ -24,21 +24,11 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth  
 
 <br />
-
-
-**Current exhibitions**  
-  
-
-TEFAF |  Maastricht, NL  
-9 - 14 March  
-Sarah Myerscough Gallery, London  
-Group presentation [Monolith](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/)  
-Booth 494
-
-<br /> 
-
+ 
 
 **Selected group exhibitions** 
+
+2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show 2023 - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
@@ -47,7 +37,7 @@ Booth 494
 
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect Art Fair - QEST - Somerset House, London, UK  
-2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - Sarah Myerscough Gallery, San Fransisco, USA  
+2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - San Fransisco, USA. Sarah Myerscough Gallery   
 
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
@@ -64,7 +54,7 @@ Booth 494
   
 **Awards** 
 
-2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Grant - Royal College of Art  
+2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award - Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
 2021&nbsp;&nbsp;&nbsp; Developing Your Creative Practice - Arts Council England  
@@ -76,7 +66,7 @@ Booth 494
 <br />   
 
 
-**Collections** 
+**Public Collections** 
 
 Museum of Leathercraft, UK  
 
