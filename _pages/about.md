@@ -10,7 +10,7 @@ Frances Pinnock is an artist living and working in London. Her practice is an ex
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final configuration. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
-Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally at TEFAF, Maastricht, NL (2024) and FOG Design + Art, San Francisco, USA (2022). Recent group exhibitions include 'Cut and Fold', Make Hauser & Wirth, Somerset (2023), 'Material Beings', Cromwell Place, London (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London (2023). 
+Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally at fairs including TEFAF Maastricht, NL (2024) and FOG Design + Art, San Francisco, USA (2022). Recent group exhibitions include 'Cut and Fold', Make Hauser & Wirth, Somerset (2023), 'Material Beings', Cromwell Place, London (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London (2023). 
 
   _________________________________________________________________________________________________________                     
  
@@ -55,17 +55,12 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 **Awards** 
 
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award - Royal College of Art  
-
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers' Company   
-
 2021&nbsp;&nbsp;&nbsp; Developing Your Creative Practice - Arts Council England  
-
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Company Award - Cockpit Arts  
-
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship - Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship - Heritage Crafts Association  
-
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Award Finalist - World of Wearable Art, New Zealand  
 
 <br />   
