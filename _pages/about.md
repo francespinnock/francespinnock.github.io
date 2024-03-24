@@ -19,9 +19,9 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 
 **Current and upcoming exhibitions**  
 
-[TEFAF online](https://www.tefaf.com/online/artworks/a03PO000007UclNYAS) : 15th - 28th March, 2024
+[TEFAF Maastricht online](https://www.tefaf.com/online/artworks/a03PO000007UclNYAS) : 9 - 28 March, 2024
 
-[Sculpted Matter](https://www.sarahmyerscough.com/exhibitions/64-sculpted-matter/) Sarah Myerscough Gallery : 19th March - 6th April, 2024 
+[Sculpted Matter](https://www.sarahmyerscough.com/exhibitions/64-sculpted-matter/) Sarah Myerscough Gallery - Online  : 19 March - 6 April, 2024 
 
 <br />
 
