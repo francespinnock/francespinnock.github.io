@@ -24,7 +24,7 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 [Sculpted Matter](https://www.sarahmyerscough.com/exhibitions/64-sculpted-matter/) : 19 March - 6 April, 2024   
 Sarah Myerscough Gallery - Online  
 
-This Country : 13 - 18 May, 2024
+This Country : 13 - 18 May, 2024  
 Crafts Council Gallery, London, UK  
 
 <br />
@@ -48,12 +48,12 @@ Crafts Council Gallery, London, UK
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
-2022&nbsp;&nbsp;&nbsp; Collect Art Fair - Somerset House, London, UK. QEST  
-2022&nbsp;&nbsp;&nbsp; FOG Design + Art Fair - San Fransisco, USA. Sarah Myerscough Gallery   
+2022&nbsp;&nbsp;&nbsp; Collect - Somerset House, London, UK. QEST  
+2022&nbsp;&nbsp;&nbsp; FOG Design + Art - San Fransisco, USA. Sarah Myerscough Gallery   
 
-2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex, London, UK  
+2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex International, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;&nbsp; Artefact Fair - Design Centre Chelsea Harbour, London, UK  
+2021&nbsp;&nbsp;&nbsp; Artefact - Design Centre Chelsea Harbour, London, UK  
 
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
 
