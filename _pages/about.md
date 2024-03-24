@@ -24,6 +24,9 @@ Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts Unive
 [Sculpted Matter](https://www.sarahmyerscough.com/exhibitions/64-sculpted-matter/) : 19 March - 6 April, 2024   
 Sarah Myerscough Gallery - Online  
 
+This Country : 13 - 18 May, 2024
+Crafts Council Gallery, London, UK  
+
 <br />
 
 **Education**  
