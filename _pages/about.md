@@ -37,9 +37,9 @@ Crafts Council Gallery, London, UK
 <br />
  
 
-**Selected group exhibitions**  
+**Group exhibitions**  
 
-2024&nbsp;&nbsp;&nbsp; TEFAF Online 
+2024&nbsp;&nbsp;&nbsp; TEFAF Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 
 2023&nbsp;&nbsp;&nbsp; MA RCA Sculpture Degree Show - Royal College of Art, London, UK  
