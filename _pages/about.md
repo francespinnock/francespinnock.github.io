@@ -42,7 +42,7 @@ Crafts Council Gallery, London, UK
 2024&nbsp;&nbsp;&nbsp; TEFAF Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 
-2023&nbsp;&nbsp;&nbsp; MA RCA Sculpture Degree Show - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp; RCA Degree Show - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
@@ -57,7 +57,7 @@ Crafts Council Gallery, London, UK
 
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
 
-2014&nbsp;&nbsp;&nbsp; BA Arts University Bournemouth Degree Show - London, UK  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
 
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, New Zealand  
 
