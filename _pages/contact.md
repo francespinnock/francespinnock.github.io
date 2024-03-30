@@ -5,13 +5,13 @@ description: Contact Frances Pinnock
 featured_image: /images/demo/demo-landscape.jpg
 ---
 <br />
-Studio contact :  
+Studio :  
 
 frances@francespinnock.com 
     
 <br />  
 <br />
-For enquiries please contact :
+Gallery :
 
 [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) London
  
