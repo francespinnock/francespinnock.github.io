@@ -37,7 +37,7 @@ Crafts Council Gallery, London, UK
 <br />
  
 
-**Group exhibitions**  
+**Selected group exhibitions**  
 
 2024&nbsp;&nbsp;&nbsp; TEFAF Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
