@@ -10,7 +10,7 @@ Frances Pinnock is an artist living and working in London. Her practice is an ex
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. These formulaic and often repetitive elements are juxtaposed by ones of gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final composition. Through the making of her work Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
 
-Frances Pinnock (b. 1990, Bristol) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally - recent exhibitions include TEFAF Maastricht, NL (2024), 'Cut and Fold', Make Hauser & Wirth, Somerset, UK (2023), 'Material Beings', Cromwell Place, London, UK (2023), 'Hung, Drawn and Quartered', Standpoint Gallery, London, UK (2023) and FOG Design + Art, San Francisco, USA (2022).  
+Frances Pinnock (b. 1990, UK) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. Her works have been exhibited internationally - recent exhibitions include TEFAF Maastricht, NL (2024), 'Cut and Fold', Make Hauser & Wirth, Somerset, UK (2023), 'Material Beings', Cromwell Place, London, UK (2023), 'Hung, Drawn and Quartered', Standpoint Gallery, London, UK (2023) and FOG Design + Art, San Francisco, USA (2022).  
 
   _________________________________________________________________________________________________________                     
  
