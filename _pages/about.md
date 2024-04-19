@@ -27,14 +27,6 @@ THIS COUNTRY : 13 - 18 May, 2024
 Crafts Council Gallery, London, UK  
 
 <br />
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Art & Design - Arts University Plymouth  
-
-<br />
  
 
 **Selected group exhibitions**  
