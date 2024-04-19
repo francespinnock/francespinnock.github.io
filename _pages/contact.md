@@ -13,7 +13,7 @@ frances@francespinnock.com
 <br />
 Gallery :
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) London
+[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) London  
 rachel@sarahmyerscough.com
  
 <br />
