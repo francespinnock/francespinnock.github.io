@@ -9,14 +9,6 @@ Studio :
 
 frances@francespinnock.com 
     
-<br />  
-<br />
-Gallery :
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) London  
-
-rachel@sarahmyerscough.com
- 
-<br />
 
 
