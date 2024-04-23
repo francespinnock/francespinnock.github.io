@@ -5,9 +5,9 @@ description: Contact Frances Pinnock
 featured_image: /images/demo/demo-landscape.jpg
 ---
 <br />
-Studio :  
+ 
 
-frances@francespinnock.com 
+Contact : frances@francespinnock.com 
     
 
 
