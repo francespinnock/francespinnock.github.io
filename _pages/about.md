@@ -12,6 +12,8 @@ Central to Pinnock’s work are the processes of pattern cutting and hand stitch
  
 Pinnock (b. 1990, UK) holds a BA in Modelmaking from the Arts University Bournemouth and an MA in Sculpture from the Royal College of Art. She worked for many years as a specialist in bespoke leatherwork and accessories, training in hand sewn shoemaking. Here she further developed the technical skills that inform her current practice.  Her work has been exhibited internationally at TEFAF Maastricht, NL (2024) and FOG Design + Art, San Francisco, USA (2022) and included in UK group shows at Make Hauser & Wirth, Somerset, UK (2023), Cromwell Place, London, UK (2023), Standpoint Gallery, London, UK (2023) and Somerset House, London (2022). 
 
+She is represented by Sarah Myerscough Gallery, London. 
+
 
 
 <br /> 
