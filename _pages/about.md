@@ -36,8 +36,11 @@ She is represented by Sarah Myerscough Gallery, London.
 **Upcoming exhibitions**  
 
 
-THIS COUNTRY : 13 - 18 May, 2024  
+[THIS COUNTRY](https://londoncraftweek.com/events/this-country/) : 14 - 18 May, 2024  
 Crafts Council Gallery, London, UK  
+
+PV 13 May, 6 - 9pm 
+[RSVP](https://www.eventbrite.com/e/this-country-private-view-crafts-council-gallery-tickets-885457797107?aff=odcleoeventsincollection) 
 
 <br />
  
