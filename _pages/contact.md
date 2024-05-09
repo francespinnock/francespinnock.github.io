@@ -10,6 +10,7 @@ Contact:
 
 frances@francespinnock.com  
 
+Represented by Sarah Myerscough Gallery, London
 erika@sarahmyerscough.com
 
 
