@@ -6,11 +6,15 @@ featured_image: /images/demo/demo-landscape.jpg
 ---
 <br />
  
-Contact: 
+
+Studio:  
 
 frances@francespinnock.com  
+<br />
 
-Represented by Sarah Myerscough Gallery, London  
+Gallery:  
+
+Sarah Myerscough Gallery, London  
 erika@sarahmyerscough.com
 
 
