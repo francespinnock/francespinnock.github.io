@@ -10,7 +10,7 @@ Frances Pinnock is an artist living and working in London, UK. Her practice is a
 
 Central to Pinnock’s work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. Formulaic and repetitive actions are contrasted by gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final composition. Through making Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object. 
  
-Frances Pinnock (b. 1990, Bristol, UK) received her MA in Sculpture from the Royal College of Art, London, UK and her BA in Modelmaking from the Arts University Bournemouth, UK. Her work has been exhibited internationally at TEFAF Maastricht, NL (2024) and FOG Design + Art, San Francisco, USA (2022). Recent selected group exhibitions include 'Cut and Fold', Make Hauser & Wirth, Somerset, UK (2023), 'Material Beings', Cromwell Place, London, UK (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London, UK (2023). 
+Frances Pinnock (b. 1990, Bristol, UK) received her MA in Sculpture from the Royal College of Art, London, UK and her BA in Modelmaking from the Arts University Bournemouth, UK. Her work has been exhibited internationally at TEFAF Maastricht, NL (2024) and FOG Design + Art, San Francisco, USA (2022). Recent UK group exhibitions include 'This Country', Crafts Council Gallery, London (2024), 'Cut and Fold', Make Hauser & Wirth, Somerset (2023), 'Material Beings', Cromwell Place, London (2023) and 'Hung, Drawn and Quartered', Standpoint Gallery, London (2023). 
 
 
 
@@ -32,22 +32,12 @@ Frances Pinnock (b. 1990, Bristol, UK) received her MA in Sculpture from the Roy
 
 <br />
  
-
-**Upcoming exhibitions**  
-
-
-[THIS COUNTRY](https://londoncraftweek.com/events/this-country/) : 14 - 18 May, 2024  
-Crafts Council Gallery, London, UK  
-
-PV 13 May, 6 - 9pm  
-[RSVP](https://www.eventbrite.com/e/this-country-private-view-crafts-council-gallery-tickets-885457797107?aff=odcleoeventsincollection) 
-
-<br />
  
 
 **Selected group exhibitions**  
 
-2024&nbsp;&nbsp;&nbsp; Sculpted Matter - Sarah Myerscough Gallery online  
+2024&nbsp;&nbsp;&nbsp; This Country - Crafts Council Gallery, London, UK  
+2024&nbsp;&nbsp;&nbsp; Sculpted Matter - Sarah Myerscough Gallery Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 
