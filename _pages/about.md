@@ -48,7 +48,7 @@ Frances Pinnock (b. 1990, Bristol, UK) received her MA in Sculpture from the Roy
 
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect - Somerset House, London, UK. QEST  
-2022&nbsp;&nbsp;&nbsp; FOG Design + Art - San Fransisco, USA. Sarah Myerscough Gallery   
+2022&nbsp;&nbsp;&nbsp; FOG Design + Art - San Francisco, USA. Sarah Myerscough Gallery   
 
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex International, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
