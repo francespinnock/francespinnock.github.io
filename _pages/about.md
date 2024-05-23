@@ -42,7 +42,7 @@ Frances Pinnock (b. 1990, Bristol, UK) received an MA in Sculpture from the Roya
 2024&nbsp;&nbsp;&nbsp; This Country - Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp; Sculpted Matter - Sarah Myerscough Gallery Online  
 2024&nbsp;&nbsp;&nbsp; TEFAF Online  
-2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery
+2024&nbsp;&nbsp;&nbsp; TEFAF Maastricht, NL. Sarah Myerscough Gallery  
 2023&nbsp;&nbsp;&nbsp; RCA Degree Show - Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
