@@ -31,7 +31,7 @@ Frances Pinnock (b. 1990, Bristol, UK) received an MA in Sculpture from the Roya
 **Education**  
 
 2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art, UK  
-2022&nbsp;&nbsp;&nbsp; Drawing Intensive - Royal Drawing School, UK
+2022&nbsp;&nbsp;&nbsp; Drawing Intensive - Royal Drawing School, UK  
 2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
 
@@ -50,7 +50,7 @@ Frances Pinnock (b. 1990, Bristol, UK) received an MA in Sculpture from the Roya
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect - Somerset House, London, UK. QEST  
-2022&nbsp;&nbsp;&nbsp; The Art of the Exceptional | Fortnum & Mason. QEST
+2022&nbsp;&nbsp;&nbsp; The Art of the Exceptional | Fortnum & Mason. QEST  
 2022&nbsp;&nbsp;&nbsp; FOG Design + Art - San Francisco, USA. Sarah Myerscough Gallery  
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex International, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
