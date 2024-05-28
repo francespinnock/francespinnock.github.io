@@ -50,7 +50,7 @@ Frances Pinnock (b. 1990, Bristol, UK) received an MA in Sculpture from the Roya
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect - Somerset House, London, UK. QEST  
-2022&nbsp;&nbsp;&nbsp; The Art of the Exceptional | Fortnum & Mason. QEST  
+2022&nbsp;&nbsp;&nbsp; The Art of the Exceptional - Fortnum & Mason, London, UK. QEST  
 2022&nbsp;&nbsp;&nbsp; FOG Design + Art - San Francisco, USA. Sarah Myerscough Gallery  
 2021&nbsp;&nbsp;&nbsp; Future Heritage - Decorex International, London, UK  
 2021&nbsp;&nbsp;&nbsp; Welding Cultures - SoShiro Gallery, London, UK  
