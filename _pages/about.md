@@ -73,7 +73,15 @@ She is represented by Sarah Myerscough Gallery, London.
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship - Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Award Finalist - World of Wearable Art, New Zealand  
 
-<br />   
+<br />  
+
+
+**Residencies**
+
+2024&nbsp;&nbsp;&nbsp; Haberdashers' Borough Academy 
+2014&nbsp;&nbsp;&nbsp; TheGallery Arts University Bournemouth  
+
+<br /> 
 
 
 **Public Collections** 
