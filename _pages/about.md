@@ -78,7 +78,7 @@ She is represented by Sarah Myerscough Gallery, London.
 
 **Residencies**
 
-2024&nbsp;&nbsp;&nbsp; Haberdashers' Borough Academy 
+2024&nbsp;&nbsp;&nbsp; Haberdashers' Borough Academy  
 2014&nbsp;&nbsp;&nbsp; TheGallery Arts University Bournemouth  
 
 <br /> 
