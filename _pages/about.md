@@ -16,11 +16,12 @@ She is represented by Sarah Myerscough Gallery, London, UK
 <br /> 
  
 --------------------------------------------------------------------------
-<br /> 
+
 <br />  
 
 (b. 1990, Bristol, UK)  
 
+<br /> 
 
 
 **Education**  
