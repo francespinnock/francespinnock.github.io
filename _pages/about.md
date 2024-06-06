@@ -3,15 +3,15 @@ title: About
 subtitle: 
 description: About Frances Pinnock
 ---
-
-
-<br />  
+  
 <br />  
 
 (b. 1990, Bristol, UK)  
 Lives and works in London, UK
 
-Represented by Sarah Myerscough Gallery, London, UK
+Represented by Sarah Myerscough Gallery, London, UK  
+
+<br /> 
 
 
 **Education**  
