@@ -31,7 +31,6 @@ She is represented by Sarah Myerscough Gallery, London.
 **Education**  
 
 2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
-2022&nbsp;&nbsp;&nbsp; Drawing Intensive - Royal Drawing School, UK  
 2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
 
