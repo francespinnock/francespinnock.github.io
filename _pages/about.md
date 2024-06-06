@@ -6,12 +6,18 @@ description: About Frances Pinnock
   
 <br />  
 
-Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London, UK. Her practice is an exploration of junctures, understood both temporally and materially. Working primarily in sculpture, she engages with found objects and organic media – variously, leather, vellum, wax and horsehair – to create works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, Pinnock layers references from Surrealism, literature, puppetry, dance, and garment making with elements of personal narrative and psychology.  
+Frances Pinnock is an artist living and working in London, UK. Her practice is an exploration of junctures, understood both temporally and materially. Working primarily in sculpture, she engages with found objects and organic media – variously, leather, vellum, wax and horsehair – to create works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, Pinnock layers references from Surrealism, literature, puppetry, dance, and garment making with elements of personal narrative and psychology.  
+
+<br /> 
+__________________________________________________________________________________________________________________________________________________
+<br />  
+
+Represented by Sarah Myerscough Gallery, London, UK  
 
 <br /> 
 
 
-Represented by Sarah Myerscough Gallery, London, UK  
+(b. 1990, Bristol, UK)  
 
 <br /> 
 
