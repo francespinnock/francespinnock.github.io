@@ -48,7 +48,7 @@ She is represented by Sarah Myerscough Gallery, London.
 2023&nbsp;&nbsp;&nbsp; Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp; Material Beings - Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp; Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
-2022&nbsp;&nbsp;&nbsp; Salon Des Refusés - The Tub, London, UK
+2022&nbsp;&nbsp;&nbsp; Salon Des Refusés - The Tub, London, UK  
 2022&nbsp;&nbsp;&nbsp; Formed with Future Heritage - Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp; Collect - Somerset House, London, UK. QEST  
 2022&nbsp;&nbsp;&nbsp; The Art of the Exceptional - Fortnum & Mason, London, UK. QEST  
