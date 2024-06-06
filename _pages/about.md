@@ -11,15 +11,16 @@ Frances Pinnock is an artist living and working in London, UK. Her practice is a
 
 Pinnock holds a MA in Sculpture from the Royal College of Art, London, UK and a BA in Modelmaking from the Arts University Bournemouth, UK. Her work has been exhibited internationally, recent selected exhibitions include TEFAF Maastricht, NL (2024), ‘Cut and Fold’, Make Hauser & Wirth, Somerset, UK (2023), ‘Material Beings’, Cromwell Place, London, UK (2023), ‘Hung, Drawn and Quartered’, Standpoint Gallery, London, UK (2023) and FOG Design + Art, San Francisco, USA (2022).  
 
-She is represented by Sarah Myerscough Gallery, London, UK
- 
+She is represented by Sarah Myerscough Gallery, London, UK  
 
+<br /> 
+ 
+--------------------------------------------------------------------------
 <br /> 
 <br />  
 
 (b. 1990, Bristol, UK)  
 
-<br />
 
 
 **Education**  
