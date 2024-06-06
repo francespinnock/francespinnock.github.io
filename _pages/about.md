@@ -8,7 +8,7 @@ description: About Frances Pinnock
 <br />  
 <br />  
 
-(b. 1990, Bristol, UK)
+(b. 1990, Bristol, UK)  
 Lives and works in London, UK
 
 Represented by Sarah Myerscough Gallery, London, UK
