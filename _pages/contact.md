@@ -13,8 +13,7 @@ studio@francespinnock.com
 <br />
 
 Gallery:  
-
-Sarah Myerscough Gallery, London  
+  
 erika@sarahmyerscough.com
 
 
