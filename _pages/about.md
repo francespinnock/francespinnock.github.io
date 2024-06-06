@@ -5,27 +5,13 @@ description: About Frances Pinnock
 ---
 
 
-<br /> 
-Frances Pinnock is an artist living and working in London, UK. Her practice is an exploration of junctures, understood both temporally and materially. Working primarily in sculpture, she engages with found objects and organic media – variously, leather, vellum, wax and horsehair – to create works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, Pinnock layers references from Surrealism, literature, puppetry, dance, and garment making with elements of personal narrative and psychology.
-
-Central to her work are the processes of pattern cutting and hand stitching, enabling ideas to shift between two and three-dimensions. Formulaic and repetitive actions are contrasted by gesture and intuition – as assembled components are playfully arranged and rearranged until they rest in a final composition. Through making Pinnock experiences points of tension and rest in movement, while the works themselves engender tensions between motion and stasis, body and object.
-
-Frances Pinnock (b. 1990, Bristol, UK) received an MA in Sculpture from the Royal College of Art, London, UK and a BA in Modelmaking from the Arts University Bournemouth, UK. Her work has been exhibited internationally, recent exhibitions include TEFAF Maastricht, NL (2024), ‘Cut and Fold’, Make Hauser & Wirth, Somerset, UK (2023), ‘Material Beings’, Cromwell Place, London, UK (2023), ‘Hung, Drawn and Quartered’, Standpoint Gallery, London, UK (2023) and FOG Design + Art, San Francisco, USA (2022).  
-
-She is represented by Sarah Myerscough Gallery, London.
-
- 
-
-
-
-
-
-<br /> 
-
-  _________________________________________________________________________________________________________                     
- 
- 
 <br />  
+<br />  
+
+(b. 1990, Bristol, UK)
+Lives and works in London, UK
+
+Represented by Sarah Myerscough Gallery, London, UK
 
 
 **Education**  
