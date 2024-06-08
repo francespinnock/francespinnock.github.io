@@ -5,33 +5,9 @@ description: About Frances Pinnock
 ---
 
 <br /> 
-
-
-Frances Pinnock is an artist living and working in London, UK. Her practice is an exploration of junctures, understood both temporally and materially. Working primarily in sculpture, she engages with found objects and organic media – variously, leather, vellum, wax and horsehair – creating works that possess something of the uncanny in their materiality and configuration. Combining meticulous hand processing, gestural mark making and assemblage, Pinnock layers references from Surrealism, literature, puppetry, dance, and garment making with elements of personal narrative and psychology. 
-
-Pinnock holds a MA in Sculpture from the Royal College of Art, London, UK and a BA in Modelmaking from the Arts University Bournemouth, UK. Her work has been exhibited internationally, recent selected exhibitions include TEFAF Maastricht, NL (2024), ‘Cut and Fold’, Make Hauser & Wirth, Somerset, UK (2023), ‘Material Beings’, Cromwell Place, London, UK (2023), ‘Hung, Drawn and Quartered’, Standpoint Gallery, London, UK (2023) and FOG Design + Art, San Francisco, USA (2022).  
-
-She is represented by Sarah Myerscough Gallery, London, UK  
-
-<br /> 
- 
---------------------------------------------------------------------------
-
+Frances Pinnock (b.1990, Bristol, UK) is as a London based artist, working across sculpture, drawing and painting.
 <br />  
 
-(b. 1990, Bristol, UK)  
-
-<br /> 
-
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
-2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
-
-<br />
- 
  
 **Selected group exhibitions**  
 
@@ -53,6 +29,14 @@ She is represented by Sarah Myerscough Gallery, London, UK
 2019&nbsp;&nbsp;&nbsp; Messums - Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, NZ  
+
+<br /> 
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
+2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
 
 <br /> 
 
@@ -83,6 +67,9 @@ She is represented by Sarah Myerscough Gallery, London, UK
 Museum of Leathercraft, UK  
 
 <br />  
+
+ 
+
 
 
 
