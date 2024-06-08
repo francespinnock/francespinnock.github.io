@@ -4,11 +4,22 @@ subtitle:
 description: About Frances Pinnock
 ---
 
+
 <br /> 
 Frances Pinnock (b.1990, Bristol, UK) is as a London based artist, working across sculpture, drawing and painting.
-<br />  
 
- 
+<br />
+<br />
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
+2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
+
+<br />
+
+
 **Selected group exhibitions**  
 
 2024&nbsp;&nbsp;&nbsp; This Country - Crafts Council Gallery, London, UK  
@@ -30,15 +41,7 @@ Frances Pinnock (b.1990, Bristol, UK) is as a London based artist, working acros
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth Degree Show - London, UK  
 2013&nbsp;&nbsp;&nbsp; World of Wearable Art - Wellington, NZ  
 
-<br /> 
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
-2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
-
-<br /> 
+<br />  
 
   
 **Awards** 
