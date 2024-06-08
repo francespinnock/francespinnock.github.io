@@ -3,33 +3,22 @@ title: About
 subtitle: 
 description: About Frances Pinnock
 ---
-<br />
 
-Frances Pinnock is an artist working across sculpture, drawing and painting. Her uncanny works engage with found objects and nontraditional materials - variously, leather, vellum, wax and horsehair and explore meticulous hand processing, gestural mark making and assemblage.  
-
-She is represented by Sarah Myerscough Gallery, London, UK. 
-
-----------------------------------------------------------------------------------------------------
-
-<br />
 <br /> 
 
 b.1990, Bristol, UK  
 Lives and works in London, UK
 
-<br />
+<br />  
+
+**Gallery**
+
+[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/), London, UK  
+
+<br /> 
 
 
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Fine Art Sculpture - Royal College of Art, UK  
-2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK  
-
-<br />
-
-
-**Selected group exhibitions**  
+**Past group**  
 
 2024&nbsp;&nbsp;&nbsp; This Country - Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp; Sculpted Matter - Sarah Myerscough Gallery, Online  
@@ -79,6 +68,13 @@ Lives and works in London, UK
 Museum of Leathercraft, UK  
 
 <br />  
+
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art, UK  
+2014&nbsp;&nbsp;&nbsp; BA Modelmaking - Arts University Bournemouth, UK  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth, UK 
 
  
 
