@@ -7,14 +7,14 @@ description: About Frances Pinnock
 Frances Pinnock is a visual artist working across sculpture, drawing and painting. Her practice explores meticulous hand processing, gestural mark making and assemblage,  engaging found objects and nontraditional materials - variously, leather, vellum, wax and horsehair. 
 
 She is represented by Sarah Myerscough Gallery, London, UK.
-
+<br />
 <br /> 
 
-(b.1990, Bristol, UK) 
+(b.1990, Bristol, UK)  
 Lives and works in London, UK
 
 <br />
-<br />
+
 
 **Education**  
 
