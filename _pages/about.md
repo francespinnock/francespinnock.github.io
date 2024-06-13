@@ -22,51 +22,28 @@ Lives and works in London, UK
 
 **Selected group exhibitions**  
 
-2024  
-This Country - Crafts Council Gallery, London, UK 
-Curated by Abigail Booth & Max Bainbridge
+2024&nbsp;&nbsp;&nbsp;This Country - Crafts Council Gallery, London, UK  
+2024&nbsp;&nbsp;&nbsp;Sculpted Matter - Sarah Myerscough Gallery, Online  
+2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht, NL | Sarah Myerscough Gallery, London, UK
 
-Sculpted Matter - Sarah Myerscough Gallery, Online  
- 
-TEFAF Maastricht, NL  
-Sarah Myerscough Gallery, London, UK
-
-2023  
-RCA Degree Show - Royal College of Art, London, UK  
-
-Cut and Fold - Make Hauser & Wirth, Somerset, UK  
-
-Material Beings - Cromwell Place, London, UK  
-Curated by Abigail Booth & Max Bainbridge 
-
-Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp;RCA Degree Show - Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp;Cut and Fold - Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp;Material Beings - Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
    
-2022  
-Collect - Somerset House, London, UK.
-Queen Elizabeth Scholarship Trust  
+2022&nbsp;&nbsp;&nbsp;Collect - Somerset House, London, UK | QEST 
+2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional - Fortnum & Mason, London, UK  
+2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA | Sarah Myerscough Gallery, London, UK  
 
-The Art of the Exceptional - Fortnum & Mason, London, UK  
-Curated by Brian Kennedy
+2021&nbsp;&nbsp;&nbsp;Future Heritage - Olympia, London, UK  
+2021&nbsp;&nbsp;&nbsp;Welding Cultures - SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp;Artefact - Design Centre Chelsea Harbour, London, UK | QEST 
 
-FOG Design + Art, San Francisco, USA  
-Sarah Myerscough Gallery, London, UK  
+2019&nbsp;&nbsp;&nbsp;Messums - Messums, London & Wiltshire, UK  
 
-2021  
-Future Heritage - Olympia, London, UK  
-Curated Corinne Julius 
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show - London, UK  
 
-Welding Cultures - SoShiro Gallery, London, UK  
-
-Artefact - Design Centre Chelsea Harbour, London, UK. 
-
-2019  
-Messums - Messums, London & Wiltshire, UK  
-
-2014  
-Arts University Bournemouth Degree Show - London, UK  
-
-2013  
-World of Wearable Art - Wellington, NZ  
+2013&nbsp;&nbsp;&nbsp;World of Wearable Art - Wellington, NZ  
 
 <br />  
 
