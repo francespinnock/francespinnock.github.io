@@ -52,7 +52,7 @@ Lives and works in London, UK
 
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award - Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship - Royal College of Art   
-2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant - The Leathersellers'    
+2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant     
 2021&nbsp;&nbsp;&nbsp; DYCP - Arts Council England  
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award - Cockpit Arts  
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship - Garfield Weston Foundation  
