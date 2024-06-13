@@ -22,59 +22,59 @@ Lives and works in London, UK
 
 **Selected group exhibitions**  
 
-2024
-This Country - Curated by Abigail Booth & Max Bainbridge 
+2024  
+This Country - Curated by Abigail Booth & Max Bainbridge  
 Crafts Council Gallery, London, UK  
 
-Sculpted Matter 
+Sculpted Matter  
 Sarah Myerscough Gallery, Online  
  
-TEFAF Maastricht, NL. 
-Sarah Myerscough Gallery, London
+TEFAF Maastricht, NL.  
+Sarah Myerscough Gallery, London, UK
 
-2023
-RCA Degree Show
+2023  
+RCA Degree Show  
 Royal College of Art, London, UK  
 
-Cut and Fold 
+Cut and Fold  
 Make Hauser & Wirth, Somerset, UK  
 
-Material Beings - Curated by Abigail Booth & Max Bainbridge 
+Material Beings - Curated by Abigail Booth & Max Bainbridge  
 Cromwell Place, London, UK  
 
-Hung, Drawn and Quartered 
+Hung, Drawn and Quartered  
 Standpoint Gallery, London, UK  
    
-2022
-Collect 
+2022  
+Collect  
 Somerset House, London, UK. QEST  
 
-The Art of the Exceptional - Curated by Brian Kennedy
+The Art of the Exceptional - Curated by Brian Kennedy  
 Fortnum & Mason, London, UK   
 
-FOG Design + Art - San Francisco, USA. 
+FOG Design + Art - San Francisco, USA  
 Sarah Myerscough Gallery, London, UK  
 
-2021
-Future Heritage - Curated Corinne Julius
+2021  
+Future Heritage - Curated Corinne Julius  
 Olympia, London, UK  
 
-Welding Cultures 
+Welding Cultures  
 SoShiro Gallery, London, UK  
 
-Artefact 
+Artefact  
 Design Centre Chelsea Harbour, London, UK. 
 
-2019
-Messums 
+2019  
+Messums  
 Messums, London & Wiltshire, UK  
 
-2014
-Arts University Bournemouth Degree Show 
+2014  
+Arts University Bournemouth Degree Show  
 London, UK  
 
-2013
-World of Wearable Art 
+2013  
+World of Wearable Art  
 Wellington, NZ  
 
 <br />  
