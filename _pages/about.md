@@ -23,59 +23,50 @@ Lives and works in London, UK
 **Selected group exhibitions**  
 
 2024  
-This Country - Curated by Abigail Booth & Max Bainbridge  
-Crafts Council Gallery, London, UK  
+This Country - Crafts Council Gallery, London, UK 
+Curated by Abigail Booth & Max Bainbridge
 
-Sculpted Matter  
-Sarah Myerscough Gallery, Online  
+Sculpted Matter - Sarah Myerscough Gallery, Online  
  
-TEFAF Maastricht, NL.  
+TEFAF Maastricht, NL  
 Sarah Myerscough Gallery, London, UK
 
 2023  
-RCA Degree Show  
-Royal College of Art, London, UK  
+RCA Degree Show - Royal College of Art, London, UK  
 
-Cut and Fold  
-Make Hauser & Wirth, Somerset, UK  
+Cut and Fold - Make Hauser & Wirth, Somerset, UK  
 
-Material Beings - Curated by Abigail Booth & Max Bainbridge  
-Cromwell Place, London, UK  
+Material Beings - Cromwell Place, London, UK  
+Curated by Abigail Booth & Max Bainbridge 
 
-Hung, Drawn and Quartered  
-Standpoint Gallery, London, UK  
+Hung, Drawn and Quartered - Standpoint Gallery, London, UK  
    
 2022  
-Collect  
-Somerset House, London, UK. QEST  
+Collect - Somerset House, London, UK.
+Queen Elizabeth Scholarship Trust  
 
-The Art of the Exceptional - Curated by Brian Kennedy  
-Fortnum & Mason, London, UK   
+The Art of the Exceptional - Fortnum & Mason, London, UK  
+Curated by Brian Kennedy
 
-FOG Design + Art - San Francisco, USA  
+FOG Design + Art, San Francisco, USA  
 Sarah Myerscough Gallery, London, UK  
 
 2021  
-Future Heritage - Curated Corinne Julius  
-Olympia, London, UK  
+Future Heritage - Olympia, London, UK  
+Curated Corinne Julius 
 
-Welding Cultures  
-SoShiro Gallery, London, UK  
+Welding Cultures - SoShiro Gallery, London, UK  
 
-Artefact  
-Design Centre Chelsea Harbour, London, UK. 
+Artefact - Design Centre Chelsea Harbour, London, UK. 
 
 2019  
-Messums  
-Messums, London & Wiltshire, UK  
+Messums - Messums, London & Wiltshire, UK  
 
 2014  
-Arts University Bournemouth Degree Show  
-London, UK  
+Arts University Bournemouth Degree Show - London, UK  
 
 2013  
-World of Wearable Art  
-Wellington, NZ  
+World of Wearable Art - Wellington, NZ  
 
 <br />  
 
