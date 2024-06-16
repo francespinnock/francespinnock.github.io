@@ -24,7 +24,7 @@ Lives and works in London, UK
 2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA. Sarah Myerscough Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures. SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;&nbsp;Artefact. Design Centre Chelsea Harbour, London, UK 
+2021&nbsp;&nbsp;&nbsp;Artefact. Design Centre Chelsea Harbour, London, UK  
 2019&nbsp;&nbsp;&nbsp;Messums. Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show, London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art. Wellington, NZ  
