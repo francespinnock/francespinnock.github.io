@@ -12,21 +12,21 @@ Lives and works in London, UK
 <br /> 
 
 **Group**  
-2024&nbsp;&nbsp;&nbsp;This Country. Crafts Council Gallery, London  
+2024&nbsp;&nbsp;&nbsp;This Country. Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter. Sarah Myerscough Gallery, Online  
-2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht. Sarah Myerscough Gallery, London  
-2023&nbsp;&nbsp;&nbsp;RCA Degree Show. Royal College of Art, London  
-2023&nbsp;&nbsp;&nbsp;Cut and Fold. Make Hauser & Wirth, Somerset  
-2023&nbsp;&nbsp;&nbsp;Material Beings. Cromwell Place, London  
-2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered. Standpoint Gallery, London  
-2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London  
-2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional. Fortnum & Mason, London  
-2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco. Sarah Myerscough Gallery, London  
-2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London  
-2021&nbsp;&nbsp;&nbsp;Welding Cultures. SoShiro Gallery, London  
-2021&nbsp;&nbsp;&nbsp;Artefact. Design Centre Chelsea Harbour, London  
-2019&nbsp;&nbsp;&nbsp;Messums. Messums, London & Wiltshire  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show, London  
+2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht, NL. Sarah Myerscough Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp;RCA Degree Show. Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp;Cut and Fold. Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp;Material Beings. Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered. Standpoint Gallery, London, UK  
+2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional. Fortnum & Mason, London, UK  
+2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA. Sarah Myerscough Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London, UK  
+2021&nbsp;&nbsp;&nbsp;Welding Cultures. SoShiro Gallery, London, UK  
+2021&nbsp;&nbsp;&nbsp;Artefact. Design Centre Chelsea Harbour, London, UK 
+2019&nbsp;&nbsp;&nbsp;Messums. Messums, London & Wiltshire, UK  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show, London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art. Wellington, NZ  
 
 <br />  
@@ -39,7 +39,7 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award. Cockpit Arts  
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship. Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship. Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist. World of Wearable Art, NZ  
+2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist. World of Wearable Art 
 
 <br /> 
 
