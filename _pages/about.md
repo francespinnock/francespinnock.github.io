@@ -19,7 +19,7 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Cut and Fold. Make Hauser & Wirth, Somerset  
 2023&nbsp;&nbsp;&nbsp;Material Beings. Cromwell Place, London  
 2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered. Standpoint Gallery, London  
-2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London 
+2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London  
 2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional. Fortnum & Mason, London  
 2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco. Sarah Myerscough Gallery, London  
 2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London  
@@ -31,7 +31,7 @@ Lives and works in London, UK
 
 <br />  
  
-**Awards** 
+**Awards**  
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award. Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship. Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant     
@@ -43,7 +43,7 @@ Lives and works in London, UK
 
 <br /> 
 
-**Public Collections** 
+**Public Collections**  
 Museum of Leathercraft, UK  
 
 <br />   
