@@ -22,6 +22,7 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered. Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp;Salon des Refusés. The Tub, London, UK  
 2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp;Formed with Future Heritage. Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional. Fortnum & Mason, London, UK  
 2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA. Sarah Myerscough Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London, UK  
