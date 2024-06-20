@@ -8,8 +8,13 @@ description: About Frances Pinnock
 
 b. 1990, Bristol, UK  
 Lives and works in London, UK 
+<br />
+**Education**  
+2023&nbsp;&nbsp;&nbsp; MA Sculpture. Royal College of Art, UK  
+2014&nbsp;&nbsp;&nbsp; BA Modelmaking. Arts University Bournemouth, UK  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design. Arts University Plymouth, UK  
 
-<br /> 
+<br />
 
 **Group**  
 2024&nbsp;&nbsp;&nbsp;This Country. Crafts Council Gallery, London, UK  
@@ -49,12 +54,6 @@ Lives and works in London, UK
 **Public Collections**  
 Museum of Leathercraft, UK  
 
-<br />   
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp; MA Sculpture. Royal College of Art, UK  
-2014&nbsp;&nbsp;&nbsp; BA Modelmaking. Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design. Arts University Plymouth, UK 
 
 
 
