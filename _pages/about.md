@@ -12,9 +12,9 @@ Lives and works in London, UK
 <br />
 
 **Education**  
-2023&nbsp;&nbsp;&nbsp; MA Sculpture - Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking - Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design - Arts University Plymouth 
+2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth 
 
 <br />
 
@@ -42,14 +42,14 @@ Lives and works in London, UK
 <br />  
  
 **Awards**  
-2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award. Royal College of Art  
-2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship. Royal College of Art   
+2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
+2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship . Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant     
-2021&nbsp;&nbsp;&nbsp; DYCP. Arts Council England  
-2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award. Cockpit Arts  
-2017&nbsp;&nbsp;&nbsp; QEST Scholarship. Garfield Weston Foundation  
-2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship. Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist. World of Wearable Art 
+2021&nbsp;&nbsp;&nbsp; DYCP . Arts Council England  
+2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award . Cockpit Arts  
+2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
+2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship . Heritage Crafts Association  
+2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art 
 
 <br /> 
 
