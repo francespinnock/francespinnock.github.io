@@ -19,19 +19,18 @@ Lives and works in London, UK
 <br />
 
 **Group**  
-2024&nbsp;&nbsp;&nbsp;This Country. Crafts Council Gallery, London, UK  
-2024&nbsp;&nbsp;&nbsp;Sculpted Matter. Sarah Myerscough Gallery, Online  
-2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht, Online  
-2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht, NL. Sarah Myerscough Gallery, London, UK  
+2024&nbsp;&nbsp;&nbsp;[This Country](https://www.forest-and-found.com/this-country). Crafts Council Gallery, London, UK  
+2024&nbsp;&nbsp;&nbsp;[Sculpted Matter](https://www.sarahmyerscough.com/exhibitions/64-sculpted-matter/). Sarah Myerscough Gallery, Online    
+2024&nbsp;&nbsp;&nbsp;[TEFAF Maastricht](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), NL. Sarah Myerscough Gallery, London, UK  
 2023&nbsp;&nbsp;&nbsp;RCA Degree Show. Royal College of Art, London, UK  
-2023&nbsp;&nbsp;&nbsp;Cut and Fold. Make Hauser & Wirth, Somerset, UK  
-2023&nbsp;&nbsp;&nbsp;Material Beings. Cromwell Place, London, UK  
-2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered. Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;&nbsp;[Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/). Make Hauser & Wirth, Somerset, UK  
+2023&nbsp;&nbsp;&nbsp;[Material Beings](https://www.forest-and-found.com/material-beings). Cromwell Place, London, UK  
+2023&nbsp;&nbsp;&nbsp;[Hung, Drawn and Quartered](https://www.standpointlondon.co.uk/gallery/2023/hung-drawn/index.php). Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp;Salon des Refusés. The Tub, London, UK  
 2022&nbsp;&nbsp;&nbsp;Collect. Somerset House, London, UK  
 2022&nbsp;&nbsp;&nbsp;Formed with Future Heritage. Design Centre Chelsea Harbour, London, UK  
 2022&nbsp;&nbsp;&nbsp;The Art of the Exceptional. Fortnum & Mason, London, UK  
-2022&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA. Sarah Myerscough Gallery, London, UK  
+2022&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/38-fog-design-art-2022/), San Francisco, USA. Sarah Myerscough Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Future Heritage. Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures. SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Artefact. Design Centre Chelsea Harbour, London, UK  
