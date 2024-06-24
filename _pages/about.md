@@ -4,6 +4,9 @@ subtitle:
 description: About Frances Pinnock
 ---
 
+<br />   
+
+Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/), London  
 <br /> 
 
 b. 1990, Bristol, UK  
