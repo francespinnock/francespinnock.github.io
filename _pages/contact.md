@@ -14,7 +14,7 @@ studio@francespinnock.com
 
 Gallery:  
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/) London
+Sarah Myerscough Gallery, London
   
 erika@sarahmyerscough.com
 
