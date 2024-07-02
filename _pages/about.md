@@ -19,7 +19,14 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth 
 
-<br />
+<br />  
+
+**Forthcoming**  
+
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, UK  
+
+<br />  
+
 
 **Group**  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
