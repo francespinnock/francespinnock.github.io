@@ -12,23 +12,12 @@ Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/), Lon
 b. 1990, Bristol, UK  
 Lives and works in London, UK 
 
-<br />
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth 
-
 <br />  
-
 **Forthcoming**  
-
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA . Sarah Myerscough Gallery, London, UK  
 
 <br />  
-
-
-**Selected Group**  
+**Group**  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online  
 2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht . Online  
@@ -50,7 +39,6 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
 <br />  
- 
 **Awards**  
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship . Royal College of Art   
@@ -62,9 +50,14 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art 
 
 <br /> 
-
 **Public Collections**  
 Museum of Leathercraft, UK  
+
+<br />  
+**Education**  
+2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth
 
 
 
