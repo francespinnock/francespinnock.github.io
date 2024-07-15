@@ -6,7 +6,7 @@ description: About Frances Pinnock
 
 <br />   
 
-Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/), London  
+Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/), London UK  
 <br /> 
 
 b. 1990, Bristol, UK  
@@ -14,12 +14,12 @@ Lives and works in London, UK
 
 <br /> 
 
-**Forthcoming**  
+**Upcoming**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA . Sarah Myerscough Gallery, London, UK  
 
 <br />
 
-**Group**  
+**Past group**  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online  
 2024&nbsp;&nbsp;&nbsp;TEFAF Maastricht . Online  
