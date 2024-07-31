@@ -7,12 +7,10 @@ featured_image: /images/demo/demo-landscape.jpg
 <br />
  
 
-Studio:  
-
-studio@francespinnock.com  
+ 
+frances@francespinnock.com  
 <br />
-
-Gallery:  
+ 
 
 Sarah Myerscough Gallery, London
   
