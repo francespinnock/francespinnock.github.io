@@ -15,11 +15,11 @@ Lives and works in London, UK
 <br />  
 
 **Solo Exhibitions**  
-2025 (Forthcoming)&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
+2025&nbsp;&nbsp;&nbsp;(Forthcoming) Sarah Myerscough Gallery, London, UK  
 <br />  
 
 **Selected Group Exhibitions**  
-2025 (Forthcoming)&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
+2025&nbsp;&nbsp;&nbsp;(Forthcoming) FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online    
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL with Sarah Myerscough Gallery, London, UK  
