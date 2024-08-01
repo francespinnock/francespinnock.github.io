@@ -9,11 +9,9 @@ featured_image: /images/demo/demo-landscape.jpg
 
  
 frances@francespinnock.com  
+
 <br />
  
-
-Sarah Myerscough Gallery, London
-  
 erika@sarahmyerscough.com
 
 
