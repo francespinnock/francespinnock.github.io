@@ -5,16 +5,21 @@ description: About Frances Pinnock
 ---
 
 b. 1990, Bristol, UK  
-Lives and works in London, UK 
+Lives and works in London, UK  
+<br />  
+
+**Education**  
+2022 - 23&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
+2010 - 14&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
+2009 - 10&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
 **Solo Exhibitions**  
-2025 (Forthcoming)&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
+2025 (Forthcoming)&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 <br />  
 
 **Selected Group Exhibitions**  
-2025 (Forthcoming)&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, UK
-
+2025 (Forthcoming)&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online    
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL with Sarah Myerscough Gallery, London, UK  
@@ -43,18 +48,14 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award . Cockpit Arts  
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship . Heritage Crafts Association  
-2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art 
+2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
 
 **Public Collections**  
-Museum of Leathercraft, UK
+Museum of Leathercraft, UK  
 <br />  
 
-**Education**  
-2022 - 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
-2010 - 2014&nbsp;&nbsp;&nbsp; BA Modelmaking . Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
-<br />  
+  
 
 
 
