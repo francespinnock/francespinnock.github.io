@@ -16,7 +16,7 @@ Lives and works in London, UK
 
 **Solo Exhibitions**  
 Forthcoming 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
-<br />
+<br />  
 
 **Selected Group Exhibitions**  
 Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, UK
@@ -39,7 +39,7 @@ Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sara
 2019&nbsp;&nbsp;&nbsp;Messums . Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-<br /> 
+<br />  
 
 **Grants / Awards**  
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
@@ -50,12 +50,12 @@ Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sara
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship . Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art 
-<br />
+<br />  
 
 **Public Collections**  
 Museum of Leathercraft, UK  
 
-<br />
+
 
 
 
