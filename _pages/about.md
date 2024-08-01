@@ -11,15 +11,15 @@ Lives and works in London, UK
 **Education**  
 2022 - 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
 2010 - 2014&nbsp;&nbsp;&nbsp; BA Modelmaking . Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;&nbsp; Foundation Diploma in Art & Design . Arts University Plymouth  
+2009 - 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
 **Solo Exhibitions**  
-Forthcoming 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
+2025 (Forthcoming)&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
 <br />  
 
 **Selected Group Exhibitions**  
-Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, UK
+2025 (Forthcoming)&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, UK
 
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online    
