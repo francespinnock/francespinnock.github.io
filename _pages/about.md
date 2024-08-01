@@ -8,12 +8,6 @@ b. 1990, Bristol, UK
 Lives and works in London, UK 
 <br />  
 
-**Education**  
-2022 - 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
-2010 - 2014&nbsp;&nbsp;&nbsp; BA Modelmaking . Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
-<br />  
-
 **Solo Exhibitions**  
 2025 (Forthcoming)&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
 <br />  
@@ -53,7 +47,15 @@ Lives and works in London, UK
 <br />  
 
 **Public Collections**  
-Museum of Leathercraft, UK  
+Museum of Leathercraft, UK
+<br />  
+
+**Education**  
+2022 - 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
+2010 - 2014&nbsp;&nbsp;&nbsp; BA Modelmaking . Arts University Bournemouth  
+2009 - 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
+<br />  
+
 
 
 
