@@ -4,24 +4,18 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-<br />    
-<br /> 
-
 b. 1990, Bristol, UK  
 Lives and works in London, UK 
-
 <br />  
 
 **Education**  
 2022 - 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
 2010 - 2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
 2009 - 2010&nbsp;&nbsp;&nbsp; Diploma Art & Design . Arts University Plymouth  
-
 <br />  
 
-**Solo**  
+**Solo Exhibitions**  
 Forthcoming 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK     
-
 <br />
 
 **Selected Group Exhibitions**  
@@ -45,7 +39,6 @@ Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sara
 2019&nbsp;&nbsp;&nbsp;Messums . Messums, London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-
 <br /> 
 
 **Grants / Awards**  
@@ -57,7 +50,6 @@ Forthcoming 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sara
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship . Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art 
-
 <br />
 
 **Public Collections**  
