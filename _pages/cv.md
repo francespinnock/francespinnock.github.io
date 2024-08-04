@@ -1,7 +1,7 @@
 ---
-title: About
+title: CV
 subtitle: 
-description: About Frances Pinnock
+description: Frances Pinnock - CV
 ---
 
 studio@francespinnock.com  
