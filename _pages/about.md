@@ -6,8 +6,6 @@ description: About Frances Pinnock
 
 studio@francespinnock.com  
 erika@sarahmyerscough.com  
-
-[instagram](https://www.instagram.com/francespinnock/)
 <br />  
 <br />  
 
