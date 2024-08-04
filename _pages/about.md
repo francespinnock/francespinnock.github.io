@@ -4,21 +4,19 @@ subtitle:
 description: About Frances Pinnock
 ---
 
-b. 1990, Bristol, UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;studio@francespinnock.com
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;erika@sarahmyerscough.com
+<br />  
+
+b. 1990, Bristol
 Lives and works in London, UK  
 <br />  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
-<br />  
-
-**Solo Exhibitions**  
+**Solo**  
 2025&nbsp;&nbsp;&nbsp;(Forthcoming) Sarah Myerscough Gallery, London, UK  
 <br />  
 
-**Selected Group Exhibitions**  
+**Group**  
 2025&nbsp;&nbsp;&nbsp;(Forthcoming) FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, Online    
@@ -54,6 +52,12 @@ Lives and works in London, UK
 **Public Collections**  
 Museum of Leathercraft, UK  
 <br />  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
+2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
+<br />
 
   
 
