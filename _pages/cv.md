@@ -9,7 +9,7 @@ erika@sarahmyerscough.com
 <br />  
 <br />  
 
-b. 1990, Bristol  
+b. 1990, Bristol, UK  
 Lives and works in London, UK  
 <br />  
 
