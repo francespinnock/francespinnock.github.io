@@ -22,12 +22,12 @@ erika@sarahmyerscough.com
 <br />  
 
 **Solo Exhibitions**  
-Forthcoming 
+Forthcoming  
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 <br />  
 
 **Select Group Exhibitions**  
-Forthcoming
+Forthcoming  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
 
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK      
