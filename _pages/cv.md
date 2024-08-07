@@ -61,12 +61,7 @@ Forthcoming
 Museum of Leathercraft, UK  
 <br />  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth
-  
-<br />
+
 
   
 
