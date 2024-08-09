@@ -6,10 +6,13 @@ description: Frances Pinnock - CV
 
 <br />  
 
-Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London. She is represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/), London.  
+Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London.   
 <br />  
 
+**Contact:**
 studio@francespinnock.com  
+
+[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/), London.
 erika@sarahmyerscough.com  
 <br />  
 <br />  
