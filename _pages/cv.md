@@ -18,6 +18,7 @@ erika@sarahmyerscough.com
 
 [Instagram](https://www.instagram.com/francespinnock/)
 <br />  
+<br />
  
 
 **Solo Exhibitions**  
