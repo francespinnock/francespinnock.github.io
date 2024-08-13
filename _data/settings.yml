@@ -11,6 +11,8 @@ menu_settings:
   menu_items:
     - title: 'CV'
       url: '/cv'
+    - title: 'Contact'
+      url: '/contact'
 
 grid_settings:
   overlay_opacity: 0.8
