@@ -10,16 +10,6 @@ b. 1990, Bristol, UK
 Lives and works in London, UK   
 <br />  
 
-**Contact:**  
-studio@francespinnock.com  
-
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/artists/151-frances-pinnock/), London.  
-erika@sarahmyerscough.com  
-
-[Instagram](https://www.instagram.com/francespinnock/)
-<br />  
-<br />
- 
 
 **Solo Exhibitions**  
 Forthcoming  
