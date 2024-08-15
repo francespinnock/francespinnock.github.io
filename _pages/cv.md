@@ -20,7 +20,7 @@ Lives and works in London, UK
 
 2025&nbsp;&nbsp;&nbsp;(Forthcoming) FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
-2023&nbsp;&nbsp;&nbsp;Sculpted Matter (Online) . Sarah Myerscough Gallery, London, UK
+2023&nbsp;&nbsp;&nbsp;Sculpted Matter (Online) . Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL . Sarah Myerscough Gallery, London, UK  
 2023&nbsp;&nbsp;&nbsp;RCA Degree Show . Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
