@@ -6,8 +6,7 @@ description: Frances Pinnock - CV
 
 <br />  
 
-b. 1990, Bristol, UK  
-Lives and works in London, UK   
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London, UK.   
 <br />  
 
 
@@ -38,10 +37,12 @@ Lives and works in London, UK
 <br />  
 
 **Public Collections**  
+
 Museum of Leathercraft, UK  
 <br />  
 
 **Grants / Awards**  
+
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship . Royal College of Art   
 2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant     
@@ -53,6 +54,7 @@ Museum of Leathercraft, UK
 <br />  
 
 **Education**  
+
 2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
 2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
