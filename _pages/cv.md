@@ -17,7 +17,8 @@ Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in 
 
 **Select Group Exhibitions**  
 
-2025&nbsp;&nbsp;&nbsp;(Forthcoming) FOG Design + Art, San Francisco, USA with Sarah Myerscough Gallery, London, Uk  
+2025&nbsp;&nbsp;&nbsp;(Forthcoming) FOG Design + Art, San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
+
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2023&nbsp;&nbsp;&nbsp;Sculpted Matter (Online) . Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL . Sarah Myerscough Gallery, London, UK  
