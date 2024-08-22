@@ -19,7 +19,7 @@ Spring 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyersco
 
 **Group**  
 
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/) San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
+January 2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/) San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
 
 <br />  
 <br /> 
