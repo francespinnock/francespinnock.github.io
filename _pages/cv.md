@@ -14,12 +14,13 @@ Frances Pinnock (b. 1990, Bristol, UK) is an artist living and working in London
 
 **Solo**
 
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
+Spring 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/) London, UK  
 <br />  
 
 **Group**  
 
-2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
+2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/) San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
+
 <br />  
 <br /> 
 <br /> 
