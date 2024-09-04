@@ -6,7 +6,8 @@ description: Frances Pinnock - CV
 
 <br />  
 
-Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London, UK.   
+b. 1990, Bristol, UK  
+Lives and works in London, UK   
 <br />  
 
 
@@ -14,20 +15,19 @@ Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in 
 
 **Solo**
 
-Spring 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/) London, UK  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery London, UK 
 <br />  
 
 **Group**  
 
-January 2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/) San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art San Francisco, USA . Sarah Myerscough Gallery, London, Uk  
 
 <br />  
-<br /> 
-<br /> 
+<br />  
 
 **Past Exhibitions**  
 
-**Group**  
+**Group**
 
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter (Online) . Sarah Myerscough Gallery, London, UK  
