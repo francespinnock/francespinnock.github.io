@@ -15,7 +15,7 @@ Lives and works in London, UK
 
 **Solo**
 
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery London, UK 
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK 
 <br />  
 
 **Group**  
