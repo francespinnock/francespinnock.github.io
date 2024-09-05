@@ -10,6 +10,12 @@ b. 1990, Bristol, UK
 Lives and works in London, UK   
 <br />  
 
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+<br />  
 
 **Forthcoming Exhibitions**  
 
@@ -64,12 +70,7 @@ Museum of Leathercraft, UK
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
 
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; MA Sculpture . Royal College of Art, London  
-2014&nbsp;&nbsp;&nbsp; BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp; Foundation Diploma Art & Design . Arts University Plymouth  
-<br /> 
+ 
 
 
 
