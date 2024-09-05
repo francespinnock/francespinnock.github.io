@@ -16,7 +16,6 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
 2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
-<br />
 
 **Forthcoming Exhibitions**  
 
