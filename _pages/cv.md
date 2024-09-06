@@ -35,8 +35,8 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp;Salon des Refusés . The Tub, London, UK  
-2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK     
-2022&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA 
+2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK  
+2022&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
 2021&nbsp;&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Artefact . Design Centre Chelsea Harbour, London, UK  
