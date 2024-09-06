@@ -20,7 +20,7 @@ Lives and works in London, UK
 **Forthcoming Exhibitions**  
 
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (solo)  
-2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA 
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
 <br />  
 
 **Past Group Exhibitions**  
