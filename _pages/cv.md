@@ -19,7 +19,7 @@ Lives and works in London, UK
 
 **Forthcoming Exhibitions**  
 
-Janurary 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
+Jan   2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
 Sring 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (solo)  
   
 <br />  
