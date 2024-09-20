@@ -9,22 +9,15 @@ description: Frances Pinnock - CV
 b. 1990, Bristol, UK  
 Lives and works in London, UK   
 <br />  
-
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
-<br />  
-
-**Forthcoming Exhibitions**  
+  
+**Forthcomings**  
 
 Jan   2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
 Sring 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (solo)  
   
 <br />  
 
-**Past Group Exhibitions**  
+**Past Group**  
 
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter (Online) . Sarah Myerscough Gallery, London, UK  
@@ -60,6 +53,13 @@ Museum of Leathercraft, UK
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship . Heritage Crafts Association  
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+<br />
 
  
 
