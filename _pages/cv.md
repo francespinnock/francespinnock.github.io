@@ -10,7 +10,7 @@ b. 1990, Bristol, UK
 Lives and works in London, UK   
 <br />  
   
-**Forthcomings**  
+**Forthcoming**  
 
 Jan   2025&nbsp;&nbsp;&nbsp;FOG Design + Art . Sarah Myerscough Gallery, San Francisco, USA  
 Sring 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (solo)  
