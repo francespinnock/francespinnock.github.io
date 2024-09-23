@@ -10,12 +10,6 @@ b. 1990, Bristol, UK
 Lives and works in London, UK   
 <br />  
 
-**Education**  
-
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
-<br />
   
 **Upcoming**  
 
@@ -41,6 +35,13 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
+<br />  
+
+**Education**  
+
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
 
 **Grants / Awards**  
