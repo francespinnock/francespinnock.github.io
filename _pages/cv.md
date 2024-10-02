@@ -58,6 +58,7 @@ Museum of Leathercraft, UK
 **Education**  
 
 2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2022&nbsp;&nbsp;&nbsp; Royal Drawing School . Drawing Intensive  
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
 2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />
