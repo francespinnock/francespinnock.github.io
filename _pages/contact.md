@@ -8,7 +8,7 @@ featured_image: /images/demo/demo-landscape.jpg
  
 
  
-studio@francespinnock.com  
+frances@francespinnock.com  
 
 [Instagram](https://www.instagram.com/francespinnock/)
 <br />  
