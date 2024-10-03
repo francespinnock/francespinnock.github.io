@@ -18,7 +18,7 @@ Live and works London, UK
 <br />
 
 **Current / Upcoming**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/), San Francisco, USA - Sarah Myerscough Gallery  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA - Sarah Myerscough Gallery  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
 <br />  
 
