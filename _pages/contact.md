@@ -9,13 +9,12 @@ featured_image: /images/demo/demo-landscape.jpg
 
  
 frances@francespinnock.com  
-
-[Instagram](https://www.instagram.com/francespinnock/)
+[@francespinnock](https://www.instagram.com/francespinnock/)
 <br />  
 <br />
 
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
+Sarah Myerscough Gallery, London 
 erika@sarahmyerscough.com
 
 
