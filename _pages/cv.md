@@ -9,13 +9,7 @@ description: Frances Pinnock - CV
 b. 1990, Bristol, UK  
 Live and works London, UK  
 <br />  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
-<br />
 
 **Current / Upcoming**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA - Sarah Myerscough Gallery  
@@ -39,6 +33,12 @@ Live and works London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
+<br />  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
 
 **Grants / Awards**  
