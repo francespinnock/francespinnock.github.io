@@ -8,7 +8,13 @@ description: Frances Pinnock - CV
 
 b. 1990, Bristol, UK  
 Live and works London, UK  
-<br />    
+<br />  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+<br />  
 
 **Current / Upcoming**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA - Sarah Myerscough Gallery  
@@ -34,10 +40,6 @@ Live and works London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 <br />  
 
-**Public Collections**  
-Museum of Leathercraft, UK  
-<br />
-  
 **Grants / Awards**  
 2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship . Royal College of Art   
@@ -49,11 +51,10 @@ Museum of Leathercraft, UK
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+**Public Collections**  
+Museum of Leathercraft, UK  
 <br />
+
 
 
 
