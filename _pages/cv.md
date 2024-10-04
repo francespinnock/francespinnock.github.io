@@ -7,7 +7,7 @@ description: Frances Pinnock - CV
 <br />  
 
 b. 1990, Bristol, UK  
-Live and works London, UK  
+Live and works in London, UK  
 <br />  
 
 **Education**  
