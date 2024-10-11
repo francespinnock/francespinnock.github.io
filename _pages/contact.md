@@ -14,8 +14,7 @@ frances@francespinnock.com
 <br />
 
 
-Sarah Myerscough Gallery, London  
-erika@sarahmyerscough.com
+
 
 
  
