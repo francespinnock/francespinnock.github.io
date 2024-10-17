@@ -15,7 +15,7 @@ Live and works in London, UK
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
 <br />  
 
-**Past**  
+**Past Group**  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL - Sarah Myerscough Gallery  
@@ -55,9 +55,7 @@ Live and works in London, UK
 2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
 
-**Public Collections**  
-Museum of Leathercraft, UK  
-<br />
+
 
 
 
