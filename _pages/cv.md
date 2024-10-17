@@ -48,7 +48,7 @@ Live and works in London, UK
 **Education**  
 2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 
 **Public Collections**  
 Museum of Leathercraft, UK  
