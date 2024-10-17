@@ -45,10 +45,15 @@ Live and works in London, UK
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
 
+**Residencies**  
+2024&nbsp;&nbsp;&nbsp; Haberdashers’ Borough Academy  
+<br />  
+
 **Education**  
 2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
 2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+<br />  
 
 **Public Collections**  
 Museum of Leathercraft, UK  
