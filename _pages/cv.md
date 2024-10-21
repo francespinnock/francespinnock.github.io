@@ -4,19 +4,12 @@ subtitle:
 description: Frances Pinnock - CV
 ---
 
-<br />  
 
 b. 1990, Bristol, UK  
 Live and works in London, UK  
 <br />  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
-<br />
-
-**Upcoming**  
+**Up / Upcoming**  
 2024&nbsp;&nbsp;&nbsp;[Ingram Prize](https://ingramcollection.com/ingram-contemporary-talent/2024-ingram-prize-shortlist/) . Unit 1 Gallery ǀ Workshop, London  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art, San Francisco, USA | Sarah Myerscough Gallery  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
@@ -50,6 +43,12 @@ Live and works in London, UK
 2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
 2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship  
 2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
+<br />  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
 <br />  
 
 **Public Collections**  
