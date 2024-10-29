@@ -38,9 +38,10 @@ Live and works in London, UK
 **Awards / Grants**  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Charitable Trust Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;Scholarship . QEST  
-2017&nbsp;&nbsp;&nbsp;Scholarship . The Arts Society Scholarship  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
+2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship Scholarship  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
 <br />  
 
