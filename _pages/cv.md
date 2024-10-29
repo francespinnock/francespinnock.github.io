@@ -11,11 +11,7 @@ Live and works in London, UK
 
 **Upcoming**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London  
-14 - 17 November  
-
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
-23 - 26 January  
-
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
 <br />  
 
@@ -36,17 +32,6 @@ Live and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-<br />  
-
-**Grants / Awards**  
-2023&nbsp;&nbsp;&nbsp; Gilbert Bayes Charitable Trust Award . Royal College of Art  
-2022&nbsp;&nbsp;&nbsp; Leverhulme Arts Scholarship . Royal College of Art   
-2022&nbsp;&nbsp;&nbsp; Leathersellers' Academic Grant     
-2021&nbsp;&nbsp;&nbsp; DYCP . Arts Council England  
-2019&nbsp;&nbsp;&nbsp; The Leathersellers’ Award . Cockpit Arts  
-2017&nbsp;&nbsp;&nbsp; QEST Scholarship . Garfield Weston Foundation  
-2017&nbsp;&nbsp;&nbsp; The Arts Society Scholarship  
-2013&nbsp;&nbsp;&nbsp; Design in Excellence Finalist . World of Wearable Art  
 <br />  
 
 **Education**  
