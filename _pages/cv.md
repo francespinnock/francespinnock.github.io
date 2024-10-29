@@ -11,6 +11,7 @@ Live and works in London, UK
 
 **Upcoming**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London  
+
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
 <br />  
