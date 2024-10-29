@@ -35,10 +35,19 @@ Live and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 <br />  
 
+**Awards / Grants**  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Charitable Trust Award . Royal College of Art  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;Scholarship . QEST  
+2017&nbsp;&nbsp;&nbsp;Scholarship . The Arts Society Scholarship  
+2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
+<br />  
+
 **Education**  
-2023&nbsp;&nbsp;&nbsp; Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp; Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp; Arts University Plymouth . Foundation Diploma Art & Design  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
 **Public Collections**  
