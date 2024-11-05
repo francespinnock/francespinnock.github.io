@@ -44,14 +44,6 @@ Live and works in London, UK
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
 <br />  
 
-**Selected Press**  
-2024&nbsp;&nbsp;&nbsp;Financial Times  
-2022&nbsp;&nbsp;&nbsp;Selvedge  
-2021&nbsp;&nbsp;&nbsp;Ateliers d'Art  
-2021&nbsp;&nbsp;&nbsp;House and Garden  
-2021&nbsp;&nbsp;&nbsp;Craft  
-<br />  
-
 **Education**  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
 2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
