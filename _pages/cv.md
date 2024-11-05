@@ -9,6 +9,12 @@ b. 1990, Bristol, UK
 Live and works in London, UK  
 <br />  
 
+**Education**  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
+<br />  
+
 **Upcoming**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London . 14 - 17 November  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery . 23 - 26 January  
@@ -42,12 +48,6 @@ Live and works in London, UK
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
 2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
-<br />  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
-2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
 **Public Collections**  
