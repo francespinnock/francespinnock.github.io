@@ -5,14 +5,8 @@ description: Frances Pinnock - CV
 ---
 
 
-b. 1990, Bristol, UK  
-Live and works in London, UK  
-<br />  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
-2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
+b. 1990, Bristol, UK
+Lives and works in London, UK  
 <br />  
 
 **Upcoming**  
@@ -48,6 +42,12 @@ Live and works in London, UK
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
 2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
+<br />  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
 **Public Collections**  
