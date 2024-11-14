@@ -9,7 +9,7 @@ b. 1990, Bristol, UK
 Lives and works in London, UK  
 <br />  
 
-**Upcoming**  
+**Up / Upcoming**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London . 14 - 17 November  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery . 23 - 26 January  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
@@ -35,6 +35,7 @@ Lives and works in London, UK
 <br />  
 
 **Awards / Grants**  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Charitable Trust Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co  
@@ -51,6 +52,7 @@ Lives and works in London, UK
 <br />  
 
 **Public Collections**  
+Ingran Collection, UK  
 Museum of Leathercraft, UK
 
   
