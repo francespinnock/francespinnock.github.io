@@ -52,7 +52,7 @@ Lives and works in London, UK
 <br />  
 
 **Public Collections**  
-Ingran Collection, UK  
+Ingram Collection, UK  
 Museum of Leathercraft, UK
 
   
