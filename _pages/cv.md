@@ -12,7 +12,7 @@ Lives and works in London, UK
 **Upcoming**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery . 23 - 26 January  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
-<br />  
+ 
 **Group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
@@ -31,24 +31,24 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-<br />  
+  
 **Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
-<br />  
+  
 **Scholarships / Grants**  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England   
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
 2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship  
-<br />  
+ 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
 2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
-<br />  
+  
 **Public Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK
