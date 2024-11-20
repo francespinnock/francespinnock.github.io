@@ -14,7 +14,7 @@ info@francespinnock.com
 
 
 
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)
+[Sarah Myerscough Gallery, London, UK](https://www.sarahmyerscough.com/)
 
 
 
