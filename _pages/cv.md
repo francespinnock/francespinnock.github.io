@@ -5,12 +5,13 @@ description: Frances Pinnock - CV
 ---
 
 
-b. 1990, Bristol, UK  
-Lives and works in London, UK  
+Born 1990 Bristol UK
+Lives and works in London UK  
+ 
 <br />  
 
 **Upcoming**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.fogfair.com/) . San Francisco, USA | [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
 2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
  
 **Group**  
@@ -49,7 +50,7 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
   
-**Public Collections**  
+**Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK
 
