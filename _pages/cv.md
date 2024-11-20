@@ -5,7 +5,7 @@ description: Frances Pinnock - CV
 ---
 
 
-Born 1990 Bristol UK
+Born 1990 Bristol UK  
 Lives and works in London UK  
  
 <br />  
