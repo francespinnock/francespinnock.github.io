@@ -8,7 +8,7 @@ featured_image: /images/demo/demo-landscape.jpg
  
 
  
-info@francespinnock.com 
+info@francespinnock.com  
 [@francespinnock](https://www.sarahmyerscough.com/)  
 <br />
 
