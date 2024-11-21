@@ -15,7 +15,6 @@ Lives and works in London UK
  
 **Group**  
 2025&nbsp;&nbsp;&nbsp;(Upcoming) FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
-
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
