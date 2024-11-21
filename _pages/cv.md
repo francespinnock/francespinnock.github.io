@@ -5,16 +5,17 @@ description: Frances Pinnock - CV
 ---
 
 
-Born 1990 Bristol UK  
-Lives and works in London UK  
  
+b.1990 Bristol UK  
+Lives and works in London UK  
 <br />  
 
-**Upcoming**  
-2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
-2025&nbsp;&nbsp;&nbsp;Solo . Sarah Myerscough Gallery, London, UK  
+**Solo**  
+2025&nbsp;&nbsp;&nbsp;(Upcoming) Solo . Sarah Myerscough Gallery, London, UK  
  
 **Group**  
+2025&nbsp;&nbsp;&nbsp;(Upcoming) FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
+
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -38,7 +39,7 @@ Lives and works in London UK
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
   
-**Scholarships / Grants**  
+**Grants**  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England   
