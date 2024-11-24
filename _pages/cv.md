@@ -6,15 +6,16 @@ description: Frances Pinnock - CV
 
 
  
-b.1990 Bristol, UK  
-Lives and works in London, UK  
-<br />  
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London. She studied BA Modelmaking at Arts University Bournemouth and received her MA in Sculpture from the Royal College of Art. Her work "Light Sleeper', 2024 was acquired for the Ingram Collection via the [Ingram Prize 2024](https://ingramcollection.com/home/2024-ingram-prize-winners/).   
+<br /> 
+<br />
 
 **Solo**  
-2025&nbsp;&nbsp;&nbsp;(Upcoming) Sarah Myerscough Gallery, London, UK  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming)  
  
 **Group**  
-2025&nbsp;&nbsp;&nbsp;(Upcoming) FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery (Upcoming)
+
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
