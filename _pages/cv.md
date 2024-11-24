@@ -6,16 +6,17 @@ description: Frances Pinnock - CV
 
 
  
-Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London. She studied BA Modelmaking at Arts University Bournemouth and received her MA in Sculpture from the Royal College of Art. Her work "Light Sleeper', 2024 was acquired for the Ingram Collection via the [Ingram Prize 2024](https://ingramcollection.com/home/2024-ingram-prize-winners/).   
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist who lives and works in London. She studied BA Modelmaking at Arts University Bournemouth and received her MA in Sculpture from the Royal College of Art, London. Her work "Light Sleeper', 2024 was acquired for the Ingram Collection via the [Ingram Prize 2024](https://ingramcollection.com/home/2024-ingram-prize-winners/).   
 <br /> 
 <br />
 
-**Solo**  
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming)  
- 
-**Group**  
-2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery (Upcoming)
+**Upcoming Solo**  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 
+**Upcoming Group**  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery  
+
+**Past Group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -37,21 +38,19 @@ Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in 
 **Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
-2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
-  
-**Grants**  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England   
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
 2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship  
+2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art
  
 **Education**  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
 2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
   
-**Collections**  
+**Permanent Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK
 
