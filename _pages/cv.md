@@ -6,7 +6,7 @@ description: Frances Pinnock - CV
 
 
  
-Frances Pinnock (b. 1990, Bristol, UK) is a visual artist who lives and works in London. She studied BA Modelmaking at Arts University Bournemouth and received her MA in Sculpture from the Royal College of Art, London. Her work "Light Sleeper', 2024 was acquired for the Ingram Collection via the [Ingram Prize 2024](https://ingramcollection.com/home/2024-ingram-prize-winners/).   
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist who lives and works in London. She studied BA Modelmaking at Arts University Bournemouth and received her MA in Sculpture from the Royal College of Art, London. Her work "Light Sleeper', 2024 was recently acquired for the Ingram Collection via the [Ingram Prize 2024](https://ingramcollection.com/home/2024-ingram-prize-winners/).   
 <br /> 
 <br />
 
