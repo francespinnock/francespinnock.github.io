@@ -13,9 +13,9 @@ Frances Pinnock (b. 1990, Bristol, UK) is a visual artist who lives and works in
   
 
 **Upcoming**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA | Sarah Myerscough Gallery, London, UK . 23 - 26 January  
+2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA | Group presentation with Sarah Myerscough Gallery, London, UK . 23 - 26 January  
 
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo)  
+2025&nbsp;&nbsp;&nbsp;Solo presentation . Sarah Myerscough Gallery, London, UK  
 
 **Past Group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
