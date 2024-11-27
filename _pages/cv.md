@@ -15,7 +15,8 @@ Lives and works in London, UK
   
 
 **Upcoming**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA | Sarah Myerscough Gallery, London, UK . 23 - 26 January  
+2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA  
+Group presentation with Sarah Myerscough Gallery, London, UK . 23 - 26 January  
 
 2025&nbsp;&nbsp;&nbsp;Solo presentation . Sarah Myerscough Gallery, London, UK  
 
