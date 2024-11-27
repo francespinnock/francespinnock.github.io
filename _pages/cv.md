@@ -26,9 +26,8 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;RCA23 . Lindbury Sculpture Studio, Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
-2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
-2022&nbsp;&nbsp;&nbsp;Salon des Refusés . The Tub, London, UK  
-2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK | QEST  
+2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK    
+2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK   
 2022&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA | Sarah Myerscough Gallery   
 2021&nbsp;&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London, UK  
@@ -36,17 +35,7 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-  
-**Awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2022&nbsp;&nbsp;&nbsp;Leathersellers’ Academic Grant . The Leathersellers’ Co  
-2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England   
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship   
-2017&nbsp;&nbsp;&nbsp;Arts Society Scholarship  
-2013&nbsp;&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art
- 
+
 **Education**  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
 2014&nbsp;&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
