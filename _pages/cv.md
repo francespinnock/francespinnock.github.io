@@ -6,7 +6,8 @@ description: Frances Pinnock - CV
 
 
  
-Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London.  
+b. 1990, Bristol, UK  
+Lives and works in London, UK  
 
 <br /> 
 <br />
