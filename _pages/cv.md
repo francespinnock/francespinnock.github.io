@@ -6,8 +6,8 @@ description: Frances Pinnock - CV
 
 
  
-b. 1990, Bristol, UK  
-Lives and works in London, UK  
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London.  
+
 <br /> 
 <br />
 
@@ -35,6 +35,14 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
+
+**Awards / Residencies**  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+2013&nbsp;&nbsp;&nbsp;Design in Excellence . World of Wearable Art  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art  
