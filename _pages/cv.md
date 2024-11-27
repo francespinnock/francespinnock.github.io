@@ -41,7 +41,7 @@ Group presentation with Sarah Myerscough Gallery, London, UK
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
 
