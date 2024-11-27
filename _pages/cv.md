@@ -19,6 +19,8 @@ Group presentation with Sarah Myerscough Gallery, London, UK
 
 2025&nbsp;&nbsp;&nbsp;Solo presentation . Sarah Myerscough Gallery, London, UK  
 
+<br />
+
 **Selected group exhibitions**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
