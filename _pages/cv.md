@@ -21,7 +21,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 
 <br />
 
-**Selected group exhibitions**  
+**Group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -39,7 +39,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
-**Selected awards**  
+**Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
@@ -47,12 +47,15 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
 
+**Residencies**  
+2024/2025&nbsp;&nbsp;&nbsp;Sarabande Foundation
+
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
 2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Art Design  
 
-**Public Collections**  
+**Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK
 
