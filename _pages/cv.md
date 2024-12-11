@@ -6,7 +6,7 @@ description: Frances Pinnock - CV
 
 
  
-Frances Pinnock (b.1990, Bristol, UK) is a visual artist living and working in London. She holds a MA in Sculpture from the Royal College of Art, London and a BA in Modelmaking from Arts University Bournemouth. In 2024 Pinnock received the Ingram Prize for her work ‘Light Sleeper’, 2024. She is a current artist in residence at Sarabande Foundation.  
+Frances Pinnock (b. 1990, Bristol, UK) is a visual artist living and working in London. She holds a MA in Sculpture from the Royal College of Art, London and a BA in Modelmaking from Arts University Bournemouth. In 2024 Pinnock received the Ingram Prize for her work ‘Light Sleeper’, 2024. She is a current artist in residence at Sarabande Foundation.  
 
 <br /> 
 <br />
