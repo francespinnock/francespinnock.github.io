@@ -48,7 +48,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Art Design  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
 **Collections**  
 Ingram Collection, UK  
