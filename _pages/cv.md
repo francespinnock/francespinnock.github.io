@@ -3,12 +3,7 @@ title: CV
 subtitle: 
 description: Frances Pinnock - CV
 ---
-
-
- 
-b. 1990, Bristol, UK  
-Lives and works in London, UK 
-
+Visual artist based in London, UK. 
 <br /> 
 <br />
 
@@ -21,7 +16,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 
 <br />
 
-**Group**  
+**Past**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
