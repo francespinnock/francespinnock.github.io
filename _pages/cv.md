@@ -17,9 +17,10 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 
 <br />
-________________________________________________________________________________________________________________________________
+--------------------------------------------------------------------------------------
+<br />
+<br />
 
-**CV**
 
 b. 1990 Bristol, UK  
 Lives and works in London, UK  
