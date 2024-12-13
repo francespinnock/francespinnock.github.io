@@ -8,6 +8,8 @@ description: Frances Pinnock - CV
 
 b. 1990 Bristol, UK  
 Lives and works in London, UK  
+<br />
+<br />
 
 **Upcoming**  
 
@@ -18,7 +20,6 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 
 **Solo**  
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
-
 <br />
 <br />
 
