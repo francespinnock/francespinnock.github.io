@@ -48,7 +48,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
 
 **Residencies**  
-2024/2025&nbsp;&nbsp;&nbsp;Sarabande Foundation studio residency  
+2024/2025&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
