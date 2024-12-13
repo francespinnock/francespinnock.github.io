@@ -8,16 +8,17 @@ Lives and works in London, UK
 <br /> 
 <br />
 
-**Upcoming**  
+**Upcoming Group**  
 2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA  
 Group presentation w/ Sarah Myerscough Gallery, London, UK  
 23 - 26 January  
 
-2025&nbsp;&nbsp;&nbsp;Solo presentation . Sarah Myerscough Gallery, London, UK  
+**Upcoming Solo**  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 
 <br />
 
-**Past**  
+**Past Group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
