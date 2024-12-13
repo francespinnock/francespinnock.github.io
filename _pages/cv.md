@@ -3,9 +3,7 @@ title: CV
 subtitle: 
 description: Frances Pinnock - CV
 ---
-<br /> 
-<br />
-
+  
 b. 1990 Bristol, UK  
 Lives and works in London, UK  
 <br />
