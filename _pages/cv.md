@@ -6,7 +6,10 @@ description: Frances Pinnock - CV
 <br /> 
 <br />
 
-**Upcoming exhibitions**  
+b. 1990 Bristol, UK  
+Lives and works in London, UK  
+
+**Upcoming**  
 
 **Group**  
 2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA  
@@ -17,20 +20,9 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 
 <br />
---------------------------------------------------------------------------------------
-<br />
 <br />
 
-
-b. 1990 Bristol, UK  
-Lives and works in London, UK  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design
-
-**Group exhibitions**  
+**Past group**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -58,6 +50,11 @@ Lives and works in London, UK
 
 **Residencies**  
 2024/2025&nbsp;&nbsp;&nbsp;Sarabande Foundation studio residency  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
 **Collections**  
 Ingram Collection, UK  
