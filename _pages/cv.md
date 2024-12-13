@@ -17,7 +17,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 23 - 26 January  
 
 **Solo**  
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
+2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK  
 <br />
 <br />
 
