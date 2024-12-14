@@ -1,9 +1,9 @@
 PROJECT="$1"
 EXTENSION="$2"
 THRESHOLD_KB=512
-f="_projects/$PROJECT"
+f="_projects/$PROJECT.md"
 echo "Working on file: $f"
-JPGFNS=$(grep -o '".*\.jpg\s*"' $f)
+JPGFNS=$(grep -o '".*\.$EXTENSION\s*"' $f)
 for fn in $JPGFNS; do
   echo $fn | echo
 done
