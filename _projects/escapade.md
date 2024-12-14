@@ -10,23 +10,24 @@ description:
 <p style="margin-left: 0; padding-bottom: 2em">
     <b>Escapade, 2024</b><br />
     Brass, oil, ink on antique wood object<br />
-    50w x 2d x 96h cm<br /><br />
-    Photography JUDDartINDEX
-
+    50w x 2d x 96h cm
 </p>
 {% include siema-buttons.md %}
 <div class="siema">
 
 <div>
 <img src="/images/new/sculptures/escapade/1.r.r.jpg" />
+<p style="margin-left: 0; padding-top: 1em">Photography JUDDartINDEX</p>
 </div>
 
 <div>
 <img src="/images/new/sculptures/escapade/2.r.r.jpg" />
+<p style="margin-left: 0; padding-top: 1em">Photography JUDDartINDEX</p>
 </div>
 
 <div>
 <img src="/images/new/sculptures/escapade/3.r.r.jpg" />
+<p style="margin-left: 0; padding-top: 1em">Photography JUDDartINDEX</p>
 </div>
 
 </div>
