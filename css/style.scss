@@ -180,10 +180,10 @@ div.exhibition-notice {
 }
 
 div.siema-outer {
-  // max-width: 1200px;
-}
-
-div.siema-outer.siema {
+    height: calc(90vh - 4em);
+	@include mq(tabletl) {
+        max-width: calc((100vh - 4em) * 9 / 16);
+	}
 }
 
 div.siema-buttons {
@@ -193,6 +193,7 @@ div.siema-buttons {
 
 div.siema-buttons button {
     border: none;
+    font-family: Lora;
 }
 
 .menu-gap {
