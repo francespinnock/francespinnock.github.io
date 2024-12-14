@@ -4,8 +4,15 @@ subtitle: ''
 date: 2024-12-14 00:00:00
 description: 
 ---
-<div style="max-width: 600px">
+<div class="siema-outer">
 
+<p style="margin-left: 0; padding-bottom: 2em">
+    <b>Lighthouse, 2024</b><br />
+    Leather, brass, silk ribbon, hemp, beeswax, iron sulphate, calligraphy ink, shellac<br />
+    110w x 13d x 174h cm<br /><br />
+    Photography JUDDartINDEX
+</p>
+{% include siema-buttons.md %}
 
 <div class="siema">
 
@@ -30,13 +37,6 @@ description:
 </div>
 
 </div>
-{% include siema-buttons.md %}
-<p style="margin-left: 0; padding-bottom: 2em">
-    <b>Lighthouse, 2024</b><br />
-    Leather, brass, silk ribbon, hemp, beeswax, iron sulphate, calligraphy ink, shellac<br />
-    110w x 13d x 174h cm<br /><br />
-    Photography JUDDartINDEX
-</p>
 
 <p style="margin-left: 0; padding-bottom: 2em">
  

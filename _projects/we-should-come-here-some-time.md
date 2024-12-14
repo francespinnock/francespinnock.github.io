@@ -4,44 +4,32 @@ subtitle: ''
 date: 2023-06-10 00:00:00
 description: 
 ---
-<div style="max-width: 800px">
+<div class="siema-outer">
+
+<p style="margin-left: 0; padding-bottom: 2em">
+<b>We should come here some time II, 2022</b><br />
+Leather, hemp, beeswax, horse hair<br />
+49w x 18d x 57h cm<br /><br />
+Photography JUDDartINDEX
+</p>
+
+{% include siema-buttons.md %}
 
 <div class="siema">
 <div>
 <img src="/images/new/sculptures/we-should-come-here-some-time/1.r.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-<b>We should come here some time I, II, & III, 2022</b><br />
-Leather, hemp, beeswax, horse hair
-</p>
 </div>
 <div>
 <img src="/images/new/sculptures/we-should-come-here-some-time/2.r.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-<b>We should come here some time I, 2022</b><br />
-Leather, hemp, beeswax, horse hair<br />
-39w x 15d x 47h cm 
-</p>
 </div>
 <div>
 <img src="/images/new/sculptures/we-should-come-here-some-time/3.r.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-<b>We should come here some time II, 2022</b><br />
-Leather, hemp, beeswax, horse hair<br />
-49w x  18d x 57h cm 
-</p>
 </div>
 <div>
 <img src="/images/new/sculptures/we-should-come-here-some-time/4.r.jpg" />
-<p style="margin-left: 0; padding-bottom: 2em">
-<b>We should come here some time III, 2022</b><br />
-Leather, hemp, beeswax, horse hair<br />
-58w x  20d x  67h cm 
-</p>
 </div>
 
 </div>
-
-{% include siema-buttons.md %}
 
 <p style="margin-left: 0; padding-bottom: 2em">
  

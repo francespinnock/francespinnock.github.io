@@ -4,7 +4,7 @@ subtitle: ''
 date: 2022-08-25 00:00:00
 description: 
 ---
-<div style="max-width: 500px">
+<div class="siema-outer">
 
 <div class="siema">
 <div>

@@ -5,6 +5,14 @@ date: 2024-02-28 00:00:00
 description: 
 ---
 <div class="siema-outer">
+
+<p style="margin-left: 0; padding-bottom: 2em">
+    <b>Volatilia (Dream with Pelican), 2023</b><br />
+    Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
+    85w x 3d x 85h  cm <br />
+    Photography Max Bainbridge
+</p>
+{% include siema-buttons.md %}
 <div class="siema">
 
 <div>
@@ -16,14 +24,6 @@ description:
 </div>
 
 </div>
-
-{% include siema-buttons.md %}
-<p style="margin-left: 0; padding-bottom: 2em">
-    <b>Volatilia (Dream with Pelican), 2023</b><br />
-    Leather, wood, copper, hemp, beeswax, iron sulphate, shellac <br />
-    85w x 3d x 85h  cm <br />
-    Photography Max Bainbridge
-</p>
 
 <p style="margin-left: 0; padding-bottom: 2em">
  

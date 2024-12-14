@@ -76,9 +76,9 @@
     <script src="/js/siema.min.js" type="text/javascript"></script>
     <script type="text/javascript">
 		function loadSiema() {
-		  console.log("siema time");
 		  const mySiema = new Siema({
 			loop: true,
+		    autoHeight: true
 		  });
 		  document.querySelector('.prev').addEventListener('click', () => mySiema.prev());
 		  document.querySelector('.next').addEventListener('click', () => mySiema.next());

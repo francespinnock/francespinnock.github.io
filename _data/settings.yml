@@ -67,8 +67,8 @@ color_settings:
 
 font_settings:
   font_embed: '<link href="https://fonts.googleapis.com/css2?family=Lora:ital,wght@0,400;0,500;0,600;0,700;1,400;1,500;1,600;1,700&display=swap" rel="stylesheet"><link href="https://fonts.googleapis.com/css2?family=Proxima%20Nova:ital,wght@0,400;0,500;0,600;0,700;1,400;1,500;1,600;1,700&display=swap" rel="stylesheet">'
-  title_font: '"Proxima Nova", Lora, sans-serif'
-  body_font: '"Proxima Nova", Lora, sans-serif'
+  title_font: 'Lora, sans-serif'
+  body_font: 'Lora, sans-serif'
   regular_weight: 300
   bold_weight: 500
   site_title:
