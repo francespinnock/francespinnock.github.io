@@ -10,7 +10,9 @@ Lives and works in London, UK
 <br />
 
 **Upcoming**  
+
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+
 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo)    
 
 <br />
