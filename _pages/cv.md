@@ -10,12 +10,10 @@ Lives and works in London, UK
 <br />
 
 **Upcoming**  
-
-**Fair**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo)  
+2025&nbsp;&nbsp;&nbsp;The Lightbox, Woking, UK (Solo)  
 
-**Solo**  
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 <br />
 <br />
 
