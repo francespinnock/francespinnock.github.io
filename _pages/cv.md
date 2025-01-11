@@ -11,7 +11,7 @@ Lives and works in London, UK
 
 **Upcoming**  
 
-**Group**  
+**Fair**  
 2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA  
 Group presentation w/ Sarah Myerscough Gallery, London, UK  
 23 - 26 January  
@@ -48,7 +48,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
 
 **Residencies**  
-2024/2025&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
+2024/2025&nbsp;&nbsp;&nbsp;Sarabande Foundation  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
