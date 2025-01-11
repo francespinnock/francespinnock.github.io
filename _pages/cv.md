@@ -12,12 +12,10 @@ Lives and works in London, UK
 **Upcoming**  
 
 **Fair**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design + Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025-art-fair/) . San Francisco, USA  
-Group presentation w/ Sarah Myerscough Gallery, London, UK  
-23 - 26 January  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 
 **Solo**  
-2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK  
 <br />
 <br />
 
@@ -48,7 +46,7 @@ Group presentation w/ Sarah Myerscough Gallery, London, UK
 2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
 
 **Residencies**  
-2024/2025&nbsp;&nbsp;&nbsp;Sarabande Foundation  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
