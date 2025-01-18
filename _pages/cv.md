@@ -8,11 +8,11 @@ b. 1990 Bristol, UK
 Lives and works in London, UK  
 <br />  
 
-**Upcoming**  
-2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo)  
+**Solo**    
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming) 
 
-**Group Exhibitions**  
+**Group**  
+2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK (Upcoming) 
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -30,13 +30,13 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
-
 **Collections**  
 Ingram Collection, UK  
-Museum of Leathercraft, UK
+Museum of Leathercraft, UK  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking
 
   
 
