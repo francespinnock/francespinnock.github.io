@@ -6,19 +6,13 @@ description: Frances Pinnock - CV
   
 b. 1990 Bristol, UK  
 Lives and works in London, UK  
-<br />
-<br />
+<br />  
 
 **Upcoming**  
-
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo)  
 
-2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo)    
-
-<br />
-<br />
-
-**Past group**  
+**Group Exhibitions**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -36,21 +30,9 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
-**Awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Award . Royal College of Art  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
-2013&nbsp;&nbsp;&nbsp;Design in Excellence (Shortlist) . World of Wearable Art  
-
-**Residencies**  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
-
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
 **Collections**  
 Ingram Collection, UK  
