@@ -37,7 +37,7 @@ Museum of Leathercraft, UK
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth  
-2012&nbsp;&nbsp;&nbsp;Arts University Plymouth 
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth 
 
   
 
