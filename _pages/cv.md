@@ -4,14 +4,14 @@ subtitle:
 description: Frances Pinnock - CV
 ---
   
-b. 1990 Bristol, UK  
+b. 1990, UK  
 Lives and works in London, UK  
 <br />  
 
-**Solo**    
+**Solo Exhibitions**    
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming) 
 
-**Group**  
+**Group Exhibitions**  
 2025&nbsp;&nbsp;&nbsp;FOG Design + Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK (Upcoming) 
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
@@ -35,8 +35,9 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 
 **Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA (Hons) Modelmaking
+2023&nbsp;&nbsp;&nbsp;Royal College of Art  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth  
+2012&nbsp;&nbsp;&nbsp;Arts University Plymouth 
 
   
 
