@@ -32,7 +32,7 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
 **Residencies**  
-2014&nbsp;&nbsp;&nbsp;Sarabande Foundation  
+2024&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 
 **Select Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
