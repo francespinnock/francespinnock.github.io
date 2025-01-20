@@ -11,7 +11,7 @@ Lives and works in London, UK
 **Solo Exhibitions**    
 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Upcoming) 
 
-**Group Exhibitions**  
+**Select Group Exhibitions**  
 2025&nbsp;&nbsp;&nbsp;[FOG Design+Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025/) . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK (Upcoming)  
 
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
@@ -30,6 +30,14 @@ Lives and works in London, UK
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
+
+**Residencies**  
+2014&nbsp;&nbsp;&nbsp;Sarabande Foundation  
+
+**Select Awards**  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 
 **Collections**  
 Ingram Collection, UK  
