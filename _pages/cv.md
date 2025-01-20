@@ -36,9 +36,9 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 
 **Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth 
+2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
   
 
