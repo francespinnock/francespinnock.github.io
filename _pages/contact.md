@@ -9,8 +9,11 @@ featured_image: /images/demo/demo-landscape.jpg
 <br />
  
 
- 
-studio@francespinnock.com  
+
+Studio    info@francespinnock.com  
+          [@francespinnock](https://www.instagram.com/francespinnock/)
+
+Gallery   info@sarahmyerscough.com 
 <br />
 
 
