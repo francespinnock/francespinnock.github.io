@@ -32,12 +32,12 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
 **Residencies**  
-2024&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation Studio Residency   
 
 **Select Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 
 **Collections**  
