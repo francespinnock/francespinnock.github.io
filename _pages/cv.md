@@ -12,8 +12,7 @@ Lives and works in London, UK
 2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Upcoming) 
 
 **Select Group Exhibitions**  
-2025&nbsp;&nbsp;&nbsp;[FOG Design+Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025/) . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK (Upcoming)  
-
+2025&nbsp;&nbsp;&nbsp;[FOG Design+Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025/) . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
