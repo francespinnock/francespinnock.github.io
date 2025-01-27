@@ -30,14 +30,17 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
-**Residencies**  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation Studio Residency   
-
-**Select Awards**  
+**Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+
+**Scholarships / Grants**  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Grant . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship    
+
+**Residencies**  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation: Artist residency   
 
 **Collections**  
 Ingram Collection, UK  
