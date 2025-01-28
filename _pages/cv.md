@@ -6,12 +6,8 @@ description: Frances Pinnock - CV
   
 b. 1990, Bristol, UK  
 Lives and works in London, UK  
-<br />  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
+<br />
+<br />
 
 **Solo Exhibitions**    
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming) 
@@ -45,7 +41,12 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship    
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+
+**Education**  
+2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
 **Collections**  
 Ingram Collection, UK  
