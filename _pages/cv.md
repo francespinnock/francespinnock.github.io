@@ -37,7 +37,7 @@ Lives and works in London, UK
 2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
 
 **Scholarships / Grants**  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Charitable Trust Scholarship . Royal College of Art  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
