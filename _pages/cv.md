@@ -30,26 +30,26 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
-**Collections**  
-Ingram Collection, UK  
-Museum of Leathercraft, UK
-
 **Awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+
+**Residencies**  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
 
 **Scholarships / Grants**  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Charitable Trust Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship    
-
-**Residencies**  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
 2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
+
+**Collections**  
+Ingram Collection, UK  
+Museum of Leathercraft, UK
 
 
   
