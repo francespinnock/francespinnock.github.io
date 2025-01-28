@@ -8,10 +8,15 @@ b. 1990, Bristol, UK
 Lives and works in London, UK  
 <br />  
 
+**Education**  
+2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
+
 **Solo Exhibitions**    
 2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming) 
 
-**Select Group Exhibitions**  
+**Select Exhibitions**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
@@ -40,12 +45,7 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
-
-**Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship    
 
 **Collections**  
 Ingram Collection, UK  
