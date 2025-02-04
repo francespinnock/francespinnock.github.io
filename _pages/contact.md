@@ -11,11 +11,16 @@ featured_image: /images/demo/demo-landscape.jpg
 
 
 studio@francespinnock.com  
-
-
-
-
 <br />
+<br />
+
+Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) 
+
+
+
+
+
+
 
 
 
