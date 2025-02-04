@@ -14,7 +14,6 @@ studio@francespinnock.com
 <br />
 <br />
 
-Represented by [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/) 
 
 
 
