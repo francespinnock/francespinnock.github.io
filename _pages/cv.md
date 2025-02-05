@@ -14,6 +14,7 @@ Lives and works in London, UK
 
 **Select Past**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio residency, London, UK  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery (Online)  
@@ -41,7 +42,8 @@ Museum of Leathercraft, UK
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking 
+2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
+2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design
 
 
   
