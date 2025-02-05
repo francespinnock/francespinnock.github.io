@@ -9,10 +9,10 @@ Lives and works in London, UK
 <br />
 <br />
 
-**Solo Exhibitions**    
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Upcoming) 
+**Upcoming**    
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo) 
 
-**Past**  
+**Select Past**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 2024&nbsp;&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
