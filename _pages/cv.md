@@ -9,7 +9,7 @@ Lives and works in London, UK
 <br />
 
 **Upcoming**    
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo) 
+2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo) 
 
 **Select Past**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
@@ -31,12 +31,12 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 
 **Awards / Residencies**  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation Studio Residency, London   
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art, London  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
 2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship, London  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
