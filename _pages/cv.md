@@ -22,6 +22,7 @@ Lives and works in London, UK
 2025  
 Sarah Myerscough Gallery, London, UK (Forthcoming) 
 <br />  
+<br />
 
 **Group Exhibitions**  
 2025  
