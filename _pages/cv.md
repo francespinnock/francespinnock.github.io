@@ -14,7 +14,8 @@ Lives and works in London, UK
 2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 
 **Solo Exhibitions**    
-2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Forthcoming) 
+2025  
+Sarah Myerscough Gallery, London, UK (Forthcoming) 
 
 **Group Exhibitions**  
 2025  
