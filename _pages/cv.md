@@ -16,6 +16,7 @@ Lives and works in London, UK
 **Solo Exhibitions**    
 2025  
 Sarah Myerscough Gallery, London, UK (Forthcoming) 
+<br />
 
 **Group Exhibitions**  
 2025  
@@ -50,6 +51,7 @@ Arts University Bournemouth Degree Show . London, UK
 
 2013  
 World of Wearable Art . Wellington, NZ  
+<br />
 
 **Awards / Residencies**  
 2024  
@@ -67,7 +69,8 @@ DYCP . Arts Council England
 
 2017  
 QEST Scholarship  
-  
+<br />
+
 **Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK  
