@@ -20,7 +20,7 @@ Lives and works in London, UK
 
 **Solo Exhibitions**    
 2025  
-Sarah Myerscough Gallery, London, UK (Forthcoming) 
+Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK (Forthcoming) 
 <br />  
 <br />
 
