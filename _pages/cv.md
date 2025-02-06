@@ -8,13 +8,9 @@ b. 1990, Bristol, UK
 Lives and works in London, UK  
 <br /> 
 
-**Gallery**  
-[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/)  
-<br />
-
 **Education**  
 2022 -23&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2010 -14&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
+2011 -14&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
 2009 -10&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
 <br />
 
