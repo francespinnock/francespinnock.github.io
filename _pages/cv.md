@@ -12,11 +12,12 @@ Lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
 2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
+<br />  
 
 **Solo Exhibitions**    
 2025  
 Sarah Myerscough Gallery, London, UK (Forthcoming) 
-<br />
+<br />  
 
 **Group Exhibitions**  
 2025  
@@ -51,25 +52,16 @@ Arts University Bournemouth Degree Show . London, UK
 
 2013  
 World of Wearable Art . Wellington, NZ  
-<br />
+<br />  
 
 **Awards / Residencies**  
-2024  
-Sarabande Foundation . Studio Residency, London  
-Ingram Prize  
-
-2023  
-Gilbert Bayes Scholarship . Royal College of Art, London  
-
-2022  
-Leverhulme Arts Scholarship . Royal College of Art, London  
-
-2021  
-DYCP . Arts Council England  
-
-2017  
-QEST Scholarship  
-<br />
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio Residency, London  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art, London  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
+2021&nbsp;&nbsp;&nbsp;DYCP . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+<br />  
 
 **Collections**  
 Ingram Collection, UK  
