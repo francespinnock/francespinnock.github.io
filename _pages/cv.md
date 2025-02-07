@@ -6,12 +6,12 @@ description: Frances Pinnock - CV
   
 b. 1990, Bristol, UK  
 Lives and works in London, UK  
+<br />  
 <br /> 
 
 **Forthcoming**    
 2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK (Solo) 
 <br />  
-<br />
 
 **Past**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
