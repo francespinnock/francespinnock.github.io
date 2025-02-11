@@ -10,7 +10,7 @@ Lives and works in London, UK
 <br /> 
 
 **Forthcoming**    
-2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK (Solo) 
+2025&nbsp;&nbsp;&nbsp;Sarah Myerscough Gallery, London, UK (Solo) 
 <br />  
 
 **Past**  
