@@ -9,8 +9,8 @@ Lives and works in London, UK
 <br />  
  
 
-**Upcoming**    
-2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo) 
+**Upcoming**  
+2025&nbsp;&nbsp;&nbsp;[Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo)  
 <br />  
 
 **Past**  
@@ -44,13 +44,13 @@ Lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-<br />   
+<br />  
 
 **Education**  
 2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
 2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
-<br />
+<br />  
 
 **Collections**  
 Ingram Collection, UK  
