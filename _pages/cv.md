@@ -46,12 +46,6 @@ Lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 <br />  
 
-**Education**  
-2023&nbsp;&nbsp;&nbsp;Royal College of Art . MA Sculpture  
-2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth . BA Modelmaking  
-2010&nbsp;&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma in Art & Design  
-<br />  
-
 **Collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK  
