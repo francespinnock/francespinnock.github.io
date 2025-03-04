@@ -49,6 +49,12 @@ lives and works in London, UK
 **collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK  
+<br />  
+
+**education**  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
+2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth, UK  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth, UK
 
 
 
