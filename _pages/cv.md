@@ -42,7 +42,7 @@ lives and works in London, UK
 
 **biography**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio Residency
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio Residency  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship . Royal College of Art, London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
