@@ -9,11 +9,11 @@ lives and works in London, UK
 <br />  
  
 
-**upcoming**  
-2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Solo)  
+**solo exhibitions**  
+2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Forthcoming)  
 <br />  
 
-**past**  
+**group exhibitions**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
   
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
@@ -40,17 +40,20 @@ lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 <br />  
 
-**biography**  
+**awards/residencies**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio Residency  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship . Royal College of Art, London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+<br />  
+
+**education**  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK
 2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth, UK  
 2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth, UK  
-<br />
+<br />  
 
 **collections**  
 Ingram Collection, UK  
