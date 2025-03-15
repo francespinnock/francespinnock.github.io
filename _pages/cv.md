@@ -10,7 +10,7 @@ lives and works in London, UK
  
 
 **upcoming**  
-2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Forthcoming)  
+2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (solo)  
 <br />  
 
 **past**  
