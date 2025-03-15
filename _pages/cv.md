@@ -9,11 +9,11 @@ lives and works in London, UK
 <br />  
  
 
-**solo exhibitions**  
+**upcoming**  
 2025&nbsp;&nbsp;&nbsp;Accoutrements & Illuminations . [Sarah Myerscough Gallery](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), London, UK (Forthcoming)  
 <br />  
 
-**group exhibitions**  
+**past**  
 2025&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
   
 2024&nbsp;&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
@@ -38,15 +38,6 @@ lives and works in London, UK
 2014&nbsp;&nbsp;&nbsp;Arts University Bournemouth Degree Show . London, UK  
 
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
-<br />  
-
-**awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize, UK  
-2024&nbsp;&nbsp;&nbsp;Studio Bursary . Sarabande, The Lee Alexander McQueen Foundation, London, UK  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Grant . Royal College of Art, London, UK  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London, UK  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England. UK  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship, UK  
 <br />  
 
 **education**  
