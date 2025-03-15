@@ -41,12 +41,12 @@ lives and works in London, UK
 <br />  
 
 **awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Studio subsidy . Sarabande Foundation  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize, UK  
+2024&nbsp;&nbsp;&nbsp;Studio Bursary . Sarabande, The Lee Alexander McQueen Foundation, London, UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Grant . Royal College of Art, London, UK  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London, UK  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England. UK  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship, UK  
 <br />  
 
 **education**  
