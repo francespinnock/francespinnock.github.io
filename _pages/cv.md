@@ -40,9 +40,9 @@ lives and works in London, UK
 2013&nbsp;&nbsp;&nbsp;World of Wearable Art . Wellington, NZ  
 <br />  
 
-**awards/residencies**  
+**awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio Residency  
+2024&nbsp;&nbsp;&nbsp;Sarabande Foundation . Studio subsidy  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Grant . Royal College of Art, London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art, London  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
