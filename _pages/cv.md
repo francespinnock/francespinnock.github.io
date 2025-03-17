@@ -22,7 +22,7 @@ lives and works in London, UK
 2024&nbsp;&nbsp;&nbsp;Sculpted Matter . Sarah Myerscough Gallery, London, UK  
 2024&nbsp;&nbsp;&nbsp;TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London, UK  
 
-2023&nbsp;&nbsp;&nbsp;MA Sculpture Degree Show, Royal College of Art, London, UK  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture Degree Show . Royal College of Art, London, UK  
 2023&nbsp;&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
@@ -41,12 +41,12 @@ lives and works in London, UK
 <br />  
 
 **eawards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize, London, UK  
-2024&nbsp;&nbsp;&nbsp;Studio Bursary, Sarabande: The Lee Alexander, London. UK  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, London, UK  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship, London, UK  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship, London, UK  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize . London, UK  
+2024&nbsp;&nbsp;&nbsp;Studio Bursary . Sarabande: The Lee Alexander, London. UK  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship . London, UK  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . London, UK  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England, UK  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship . London, UK  
 <br />  
 
 **education**  
