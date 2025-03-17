@@ -42,7 +42,7 @@ lives and works in London, UK
 
 **eawards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize, London, UK  
-2024&nbsp;&nbsp;&nbsp;Studio Bursary, Sarabande: The Lee Alexander, London. UK
+2024&nbsp;&nbsp;&nbsp;Studio Bursary, Sarabande: The Lee Alexander, London. UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship, London, UK  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
