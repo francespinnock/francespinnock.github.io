@@ -26,7 +26,7 @@ lives and works in London, UK
 2023&nbsp;&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
 2023&nbsp;&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
-20233&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, London, UK  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, London, UK  
 
 2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK  w/ QEST  
 2022&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
