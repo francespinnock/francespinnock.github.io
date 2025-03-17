@@ -31,6 +31,7 @@ lives and works in London, UK
 2022&nbsp;&nbsp;&nbsp;Collect . Somerset House, London, UK  w/ QEST  
 2022&nbsp;&nbsp;&nbsp;FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . London, UK  
+2022&nbsp;&nbsp;&nbsp;Leathersellers' academic grant . London, UK  
 
 2021&nbsp;&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London, UK  
