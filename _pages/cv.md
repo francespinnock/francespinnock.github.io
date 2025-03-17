@@ -35,7 +35,7 @@ lives and works in London, UK
 2021&nbsp;&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
 2021&nbsp;&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London, UK  
 2021&nbsp;&nbsp;&nbsp;Artefact . Design Centre Chelsea Harbour, London, UK  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
 2019&nbsp;&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship, London UK  
