@@ -13,6 +13,7 @@ lives and works in London, UK
 
 2025  
 Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK  
+(Forthcoming)  
 
 Light Sleeper . Lightbox Gallery, Woking, UK  
 15 November - 18 January 2026  
