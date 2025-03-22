@@ -9,8 +9,8 @@ header_settings:
 
 menu_settings:
   menu_items:
-    - title: 'CV'
-      url: '/cv'
+    - title: 'Biography'
+      url: '/bio'
     - title: 'Contact'
       url: '/contact'
 
