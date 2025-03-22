@@ -9,23 +9,24 @@ lives and works in London, UK
 <br />  
  
 
-**solo exhibitions**  
+**upcoming**  
 
 2025  
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
-(Forthcoming)  
+(Solo)  
 
-[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  
+[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK (Solo)  
 15 November - 18 January 2026  
 <br />  
 
-**group exhibitions**  
+**past**  
 
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 
 2024  
 Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
+Studio artist . Sarabande: The Lee Alexander McQueen Foundation, London, UK 
 This Country . Crafts Council Gallery, London, UK  
 Sculpted Matter . Sarah Myerscough Gallery, London, UK  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London, UK  
@@ -35,15 +36,18 @@ MA Sculpture Degree Show . Royal College of Art, London, UK
 Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 Material Beings . Cromwell Place, London, UK  
 Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
+Gilbert Bayes Trust Scholarship . London, UK
 
 2022  
 Collect . Somerset House, London, UK  w/ QEST  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+Leverhulme Arts Scholarship . London, UK
 
 2021  
 Future Heritage . Olympia, London, UK  
 Welding Cultures . SoShiro Gallery, London, UK  
 Artefact . Design Centre Chelsea Harbour, London, UK  
+Developing your Creative Practice . Arts Council England, UK
 
 2019  
 Messums . London & Wiltshire, UK  
@@ -58,15 +62,6 @@ World of Wearable Art . Wellington, NZ
 **public collections**  
 Ingram Collection, UK  
 Museum of Leathercraft, UK  
-<br />  
-
-**awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Studio subsidy . Sarabande: The Lee Alexander McQueen Foundation, London, UK  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship . London, UK  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . London, UK  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England, UK  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship . London, UK  
 <br />  
 
 **education**  
