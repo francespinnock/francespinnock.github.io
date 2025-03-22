@@ -61,7 +61,7 @@ Museum of Leathercraft, UK
 
 **awards / resedencies / scholarships**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Studio residency . Sarabande Foundation, London. UK  
+2024&nbsp;&nbsp;&nbsp;Studio residency . Sarabande Foundation, London, UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship . London, UK  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship . London, UK  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England, UK  
