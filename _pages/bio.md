@@ -20,10 +20,10 @@ Light Sleeper . Lightbox Gallery, Woking, UK
 
 **group exhibitions**  
 
-2025
+2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 
-2024
+2024  
 Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
 This Country . Crafts Council Gallery, London, UK  
 Sculpted Matter . Sarah Myerscough Gallery, London, UK  
