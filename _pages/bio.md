@@ -11,10 +11,10 @@ lives and works in London, UK
 
 **solo exhibitions**  
 
-2025
-Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK (solo)  
+2025  
+Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK  
 
-Light Sleeper . Lightbox Gallery, Woking, UK (solo)  
+Light Sleeper . Lightbox Gallery, Woking, UK  
 15 November - 18 January 2026  
 <br />  
 
