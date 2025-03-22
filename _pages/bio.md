@@ -12,10 +12,10 @@ lives and works in London, UK
 **solo exhibitions**  
 
 2025  
-Accoutrements & Illuminations . Sarah Myerscough Gallery, London, UK  
+[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
 (Forthcoming)  
 
-Light Sleeper . Lightbox Gallery, Woking, UK  
+[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  
 15 November - 18 January 2026  
 <br />  
 
