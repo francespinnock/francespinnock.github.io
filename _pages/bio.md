@@ -1,7 +1,7 @@
 ---
-title: CV
+title: Biography
 subtitle: 
-description: Frances Pinnock - CV
+description: Frances Pinnock - Biography
 ---
   
 b. 1990, UK  
