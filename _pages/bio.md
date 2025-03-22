@@ -27,7 +27,7 @@ FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK
 
 2024  
 Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
-Studio artist . Sarabande: The Lee Alexander McQueen Foundation, London, UK 
+Studio artist . Sarabande: The Lee Alexander McQueen Foundation, London, UK  
 This Country . Crafts Council Gallery, London, UK  
 Sculpted Matter . Sarah Myerscough Gallery, London, UK  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London, UK  
