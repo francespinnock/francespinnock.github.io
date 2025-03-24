@@ -60,8 +60,8 @@ World of Wearable Art . Wellington, NZ
 2024&nbsp;&nbsp;&nbsp;Ingram Prize, UK  
 2024&nbsp;&nbsp;&nbsp;Studio residency . Sarabande: The Lee Alexander McQueen Foundation, UK  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, UK  
-2023&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship, UK  
-2022&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship, UK  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship, UK  
 <br />  
 
