@@ -9,7 +9,7 @@ lives and works in London, UK
 <br />  
  
 
-**upcoming**  
+**solo**  
   
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
 (Solo)  
@@ -20,7 +20,7 @@ lives and works in London, UK
 15 November 2025 - 18 January 2026  
 <br />  
 
-**past**  
+**group**  
 
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
