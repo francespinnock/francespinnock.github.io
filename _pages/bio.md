@@ -12,11 +12,11 @@ lives and works in London, UK
 **upcoming**  
   
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
-(solo)
+(solo)  
 3 October - 29 November 2025
 
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  
-(solo)
+(solo)  
 15 November 2025 - 18 January 2026  
 <br />  
 
@@ -48,7 +48,7 @@ Leverhulme Arts Scholarship, UK
 Future Heritage . Olympia, London, UK  
 Welding Cultures . SoShiro Gallery, London, UK  
 Artefact . Design Centre Chelsea Harbour, London, UK  
-Developing your Creative Practice, Arts Council England, UK  
+Developing your Creative Practice . Arts Council England, UK  
 
 2019  
 Messums . London & Wiltshire, UK
