@@ -27,12 +27,14 @@ FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK
 
 2024  
 Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
+Studio residency . Sarabande: The Lee Alexander McQueen Foundation, UK  
 This Country . Crafts Council Gallery, London, UK  
 Sculpted Matter . Sarah Myerscough Gallery, London, UK  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London, UK  
 
 2023  
 MA Sculpture Degree Show . Royal College of Art, London, UK  
+Gilbert Bayes Trust Scholarship, UK  
 Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 Material Beings . Cromwell Place, London, UK  
 Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
@@ -40,29 +42,25 @@ Hung, Drawn and Quartered . Standpoint Gallery, London, UK
 2022  
 Collect . Somerset House, London, UK  w/ QEST  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
+Leverhulme Arts Scholarship, UK  
 
 2021  
 Future Heritage . Olympia, London, UK  
 Welding Cultures . SoShiro Gallery, London, UK  
 Artefact . Design Centre Chelsea Harbour, London, UK  
+Developing your Creative Practice, Arts Council England, UK  
 
 2019  
-Messums . London & Wiltshire, UK  
+Messums . London & Wiltshire, UK
+
+2017  
+QEST Scholarship, UK  
 
 2014  
 Arts University Bournemouth Degree Show . London, UK  
 
 2013  
 World of Wearable Art . Wellington, NZ  
-<br />  
-
-**awards & residencies**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize, UK  
-2024&nbsp;&nbsp;&nbsp;Studio residency . Sarabande: The Lee Alexander McQueen Foundation, UK  
-2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship, UK  
-2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship, UK  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England, UK  
-2017&nbsp;&nbsp;&nbsp;QEST Scholarship, UK  
 <br />  
 
 **public collections**  
