@@ -4,7 +4,8 @@ subtitle:
 description: Frances Pinnock - Biography
 ---
   
-  
+b. 1990, Bristol  
+lives and works in London   
 <br />  
  
 **solo exhibitions**  
@@ -59,10 +60,7 @@ Museum of Leathercraft, UK
 <br />  
 
 **biography**  
-b. 1990, Bristol  
-lives and works in London  
-
-2023&nbsp;&nbsp;&nbsp;Ingram Prize  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, London  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship  
