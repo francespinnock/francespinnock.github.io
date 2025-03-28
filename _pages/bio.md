@@ -4,36 +4,32 @@ subtitle:
 description: Frances Pinnock - Biography
 ---
   
-b. 1990, UK  
-lives and works in London, UK  
+  
 <br />  
  
-
-**upcoming**  
+**solo exhibitions**  
   
-[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  (solo)  
+[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
 3 October - 29 November 2025
 
-[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  (solo)  
+[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  
 15 November 2025 - 18 January 2026  
 <br /> 
 <br />
 
-**past**  
+**group exhibitions**  
 
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
 
 2024  
 Ingram Prize . Unit 1 Gallery ǀ Workshop, London, UK  
-Studio residency . Sarabande: The Lee Alexander McQueen Foundation, UK  
 This Country . Crafts Council Gallery, London, UK  
 Sculpted Matter . Sarah Myerscough Gallery, London, UK  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London, UK  
 
 2023  
 MA Sculpture Degree Show . Royal College of Art, London, UK  
-Gilbert Bayes Trust Scholarship, UK  
 Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 Material Beings . Cromwell Place, London, UK  
 Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
@@ -41,19 +37,14 @@ Hung, Drawn and Quartered . Standpoint Gallery, London, UK
 2022  
 Collect . Somerset House, London, UK  w/ QEST  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London, UK  
-Leverhulme Arts Scholarship, UK  
 
 2021  
 Future Heritage . Olympia, London, UK  
 Welding Cultures . SoShiro Gallery, London, UK  
 Artefact . Design Centre Chelsea Harbour, London, UK  
-Developing your Creative Practice . Arts Council England, UK  
 
 2019  
-Messums . London & Wiltshire, UK
-
-2017  
-QEST Scholarship, UK  
+Messums . London & Wiltshire, UK  
 
 2014  
 Arts University Bournemouth Degree Show . London, UK  
@@ -67,10 +58,19 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 <br />  
 
-**education**  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
-2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth, UK  
+**biography**  
+b. 1990, UK  
+lives and works in London, UK  
+
+2023&nbsp;&nbsp;&nbsp;Ingram Prize  
+2023&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, London  
+2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship  
+2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
+2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
+2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth  
 <br />  
 
 
