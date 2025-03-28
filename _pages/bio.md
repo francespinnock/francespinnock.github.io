@@ -59,8 +59,8 @@ Museum of Leathercraft, UK
 <br />  
 
 **biography**  
-b. 1990, UK  
-lives and works in London, UK  
+b. 1990, Bristol  
+lives and works in London  
 
 2023&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
