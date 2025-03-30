@@ -64,7 +64,7 @@ Museum of Leathercraft, UK
 2024&nbsp;&nbsp;&nbsp;Sarabande Foundation Studio Residency  
 <br />  
 
-**scholarships & grants**
+**scholarships & grants**  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
