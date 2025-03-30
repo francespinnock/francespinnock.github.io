@@ -59,17 +59,20 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 <br />  
 
-**biography**  
+**awards & residencies**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, London  
 2023&nbsp;&nbsp;&nbsp;Gilbert Bayes Trust Scholarship  
 2022&nbsp;&nbsp;&nbsp;Leverhulme Arts Scholarship  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2017&nbsp;&nbsp;&nbsp;QEST Scholarship  
-2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth  
 <br />  
+
+**education**  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, London  
+2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth
+
 
 
 
