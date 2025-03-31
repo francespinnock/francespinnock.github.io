@@ -26,8 +26,6 @@ lives and works in London
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
 2024  
-Ingram Prize . Unit 1 Gallery ǀ Workshop, London  
-Sarabande Foundation Studio Residency, London  
 This Country . Crafts Council Gallery, London  
 Sculpted Matter . Sarah Myerscough Gallery, London  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London  
@@ -41,21 +39,15 @@ Gilbert Bayes Trust Scholarship
 
 2022  
 Collect . Somerset House, London  w/ QEST  
-Drawing Intensive, Royal Drawing School, London  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
-Leverhulme Arts Scholarship  
 
 2021  
 Future Heritage . Olympia, London  
 Welding Cultures . SoShiro Gallery, London  
 Artefact . Design Centre Chelsea Harbour, London  
-Developing your Creative Practice . Arts Council England  
 
 2019  
 Messums . London & Wiltshire  
-
-2017  
-QEST Scholarship  
 
 2014  
 Arts University Bournemouth Degree Show . London  
@@ -69,10 +61,17 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 <br />  
 
-**education**  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture . Royal College of Art, London  
-2014&nbsp;&nbsp;&nbsp;BA Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design . Arts University Plymouth
+**biography**  
+2024&nbsp;&nbsp;&nbsp;Ingram Prize  
+2024&nbsp;&nbsp;&nbsp;Studio Residency, Sarabande Foundation  
+2023&nbsp;&nbsp;&nbsp;MA Sculpture, Royal College of Art  
+2023&nbsp;&nbsp;&nbsp;Scholarship, Gilbert Bayes Trust  
+2022&nbsp;&nbsp;&nbsp;Scholarship, The Leverhulme Trust  
+2022&nbsp;&nbsp;&nbsp;Drawing Intensive, Royal Drawing School  
+2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England  
+2017&nbsp;&nbsp;&nbsp;Scholarship, QEST  
+2014&nbsp;&nbsp;&nbsp;BA Hons. Modelmaking, Arts University Bournemouth  
+2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design, Arts University Plymouth
 
 
 
