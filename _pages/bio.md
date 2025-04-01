@@ -3,9 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---
-    
 <br />  
-
 b. 1990, Bristol  
 lives and works in London  
 <br /> 
