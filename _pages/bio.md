@@ -59,12 +59,14 @@ World of Wearable Art . Wellington
 
 **public collections**  
 Ingram Collection, Woking  
-Museum of Leathercraft, Northampton   
+Museum of Leathercraft, Northampton  
+
 <br />  
 <br />  
 ----------------------------------------------------------------------------------------------
 <br /> 
-<br />
+<br />  
+
 b. 1990, Bristol  
 lives and works in London  
 <br />   
