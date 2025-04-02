@@ -19,7 +19,7 @@ description: Frances Pinnock - Biography
 <br /> 
 <br />
 
-**past group**  
+**past**  
 
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
