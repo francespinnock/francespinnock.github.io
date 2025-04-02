@@ -62,7 +62,7 @@ Museum of Leathercraft, UK
 
 **awards**  
 2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Subsidised studio, Sarabande Foundation  
+2024&nbsp;&nbsp;&nbsp;Studio, Sarabande Foundation  
 2023&nbsp;&nbsp;&nbsp;Scholarship, Gilbert Bayes Trust  
 2022&nbsp;&nbsp;&nbsp;Scholarship, The Leverhulme Trust  
 2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England  
