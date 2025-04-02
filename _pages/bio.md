@@ -64,10 +64,10 @@ Ingram Collection, Woking
 Museum of Leathercraft, Northampton  
 <br />  
 
-**educations**  
-2023 . Royal College of Art, MA Sculpture  
-2014 . Arts University Bournemouth, BA (Hons) Modelmaking  
-2010 . Arts University Plymouth, Foundation Diploma in Art and Design 
+**education**  
+2023&nbsp;&nbsp;Royal College of Art, MA Sculpture  
+2014&nbsp;&nbsp;Arts University Bournemouth, BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;Arts University Plymouth, Foundation Diploma in Art and Design 
 
 
 
