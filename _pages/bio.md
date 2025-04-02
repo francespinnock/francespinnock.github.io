@@ -17,7 +17,6 @@ lives and works in London
 (solo)  
 15 November 2025 - 18 January 2026  
 <br /> 
-<br />
 
 **past**  
 
@@ -63,11 +62,9 @@ World of Wearable Art . Wellington
 **collections**  
 Ingram Collection, Woking  
 Museum of Leathercraft, Northampton  
-
-<br />  
 <br />  
 
-  
+**educations**  
 2023 . Royal College of Art, MA Sculpture  
 2014 . Arts University Bournemouth, BA (Hons) Modelmaking  
 2010 . Arts University Plymouth, Foundation Diploma in Art and Design 
