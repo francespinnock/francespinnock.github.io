@@ -34,9 +34,11 @@ TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London
 MA Sculpture 2023 . Royal College of Art, London  
 Cut and Fold . Make Hauser & Wirth, Somerset  
 Material Beings . Cromwell Place, London  
-Hung, Drawn and Quartered . Standpoint Gallery, London    
+Hung, Drawn and Quartered . Standpoint Gallery, London  
+Scholarship . Gilbert Bayes Trust, London  
 
 2022  
+Scholarship . The Leverhulme Trust, London  
 Collect . Somerset House, London  w/ QEST  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
@@ -47,6 +49,9 @@ Artefact . Design Centre Chelsea Harbour, London
 
 2019  
 Messums . London & Wiltshire  
+
+2017  
+Scholarship . QEST, London  
 
 2014  
 BA Modelmaking, Arts University Bournemouth . London  
