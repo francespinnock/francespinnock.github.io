@@ -61,8 +61,8 @@ Museum of Leathercraft, Northampton
 <br />  
 
 **education**  
-2023        Royal College of Art, MA Sculpture 
-2014        Arts University Bournemouth, BA (Hons) Modelmaking 
+2023        Royal College of Art, MA Sculpture  
+2014        Arts University Bournemouth, BA (Hons) Modelmaking  
 2010        Arts University Plymouth, Foundation Diploma in Art and Design 
 
 
