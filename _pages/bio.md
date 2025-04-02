@@ -3,6 +3,9 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
+b. 1990, Bristol  
+lives and works in London  
+<br />  
 
 **upcoming**  
   
@@ -57,19 +60,14 @@ BA Modelmaking, Arts University Bournemouth . London
 World of Wearable Art . Wellington  
 <br />  
 
-**public collections**  
+**collections**  
 Ingram Collection, Woking  
 Museum of Leathercraft, Northampton  
 
 <br />  
 <br />  
-----------------------------------------------------------------------------------------------
-<br /> 
-<br />  
 
-b. 1990, Bristol  
-lives and works in London  
-<br />   
+  
 2023 . Royal College of Art, MA Sculpture  
 2014 . Arts University Bournemouth, BA (Hons) Modelmaking  
 2010 . Arts University Plymouth, Foundation Diploma in Art and Design 
