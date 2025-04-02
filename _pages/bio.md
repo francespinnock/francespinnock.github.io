@@ -3,8 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-b. 1990, Bristol  
-lives and works in London  
+  
 <br /> 
 <br /> 
 
@@ -60,19 +59,7 @@ Ingram Collection, UK
 Museum of Leathercraft, UK  
 <br />  
 
-**awards**  
-2024&nbsp;&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;&nbsp;Studio, Sarabande Foundation  
-2023&nbsp;&nbsp;&nbsp;Scholarship, Gilbert Bayes Trust  
-2022&nbsp;&nbsp;&nbsp;Scholarship, The Leverhulme Trust  
-2021&nbsp;&nbsp;&nbsp;Developing your Creative Practice, Arts Council England  
-2017&nbsp;&nbsp;&nbsp;Scholarship, QEST  
-<br />  
 
-**education**  
-2023&nbsp;&nbsp;&nbsp;MA Sculpture, Royal College of Art  
-2014&nbsp;&nbsp;&nbsp;BA Hons. Modelmaking, Arts University Bournemouth  
-2010&nbsp;&nbsp;&nbsp;Foundation Diploma in Art & Design, Arts University Plymouth
 
 
 
