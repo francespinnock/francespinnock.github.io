@@ -7,7 +7,7 @@ description: Frances Pinnock - Biography
 <br /> 
 <br /> 
 
-**upcoming**  
+**forthcoming**  
   
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London  
 (solo)  
@@ -25,12 +25,13 @@ description: Frances Pinnock - Biography
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
 2024  
+Ingram Prize . Unit 1 Gallery | Workshop, London  
 This Country . Crafts Council Gallery, London  
 Sculpted Matter . Sarah Myerscough Gallery, London  
 TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London  
 
 2023  
-MA Sculpture Degree Show . Royal College of Art, London  
+MA Sculpture 2023 . Royal College of Art, London  
 Cut and Fold . Make Hauser & Wirth, Somerset  
 Material Beings . Cromwell Place, London  
 Hung, Drawn and Quartered . Standpoint Gallery, London    
@@ -48,16 +49,21 @@ Artefact . Design Centre Chelsea Harbour, London
 Messums . London & Wiltshire  
 
 2014  
-Arts University Bournemouth Degree Show . London  
+BA Modelmaking, Arts University Bournemouth . London  
 
 2013  
 World of Wearable Art . Wellington  
 <br />  
 
 **public collections**  
-Ingram Collection, UK  
-Museum of Leathercraft, UK  
+Ingram Collection, Woking  
+Museum of Leathercraft, Northampton   
 <br />  
+
+**education**  
+2023        Royal College of Art, MA Sculpture 
+2014        Arts University Bournemouth, BA (Hons) Modelmaking 
+2010        Arts University Plymouth, Foundation Diploma in Art and Design 
 
 
 
