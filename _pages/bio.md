@@ -62,13 +62,12 @@ Ingram Collection, Woking
 Museum of Leathercraft, Northampton   
 <br />  
 <br />  
-_____________________________________________________________________________________________________
+----------------------------------------------------------------------------------------------
+<br /> 
 <br />
 b. 1990, Bristol  
 lives and works in London  
-<br />  
-
-**education**  
+<br />   
 2023 . Royal College of Art, MA Sculpture  
 2014 . Arts University Bournemouth, BA (Hons) Modelmaking  
 2010 . Arts University Plymouth, Foundation Diploma in Art and Design 
