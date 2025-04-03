@@ -8,7 +8,8 @@ featured_image: /images/demo/demo-landscape.jpg
 <br />
 <br />
  
-
+  
+lives and works in London 
 
 studio@francespinnock.com  
 <br />
