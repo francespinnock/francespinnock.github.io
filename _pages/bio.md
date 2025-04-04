@@ -63,10 +63,10 @@ Museum of Leathercraft, Northampton
 **awards**  
 2024&nbsp;&nbsp;Ingram Prize  
 2024&nbsp;&nbsp;Studio residency . Saraband Foundation  
-2023&nbsp;&nbsp;Scholarship . Gilbert Bayes Trust, London  
-2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust, London  
+2023&nbsp;&nbsp;Scholarship . Gilbert Bayes Trust  
+2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust  
 2021&nbsp;&nbsp;DYCP . Arts Council England  
-2017&nbsp;&nbsp;Scholarship . QEST, London  
+2017&nbsp;&nbsp;Scholarship . QEST  
 <br />  
 
 **education**  
