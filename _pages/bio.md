@@ -5,11 +5,6 @@ description: Frances Pinnock - Biography
 ---  
 b. 1990, UK  
 lives and works in London  
-
-2023&nbsp;&nbsp;Royal College of Art, MA Sculpture  
-2014&nbsp;&nbsp;Arts University Bournemouth, BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;Arts University Plymouth, Foundation Diploma in Art and Design
- 
 <br />  
 
 **solo exhibitions**  
@@ -66,6 +61,12 @@ World of Wearable Art . Wellington
 2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust  
 2021&nbsp;&nbsp;DYCP . Arts Council England  
 2017&nbsp;&nbsp;Scholarship . QEST  
+<br />  
+
+**education**  
+2023&nbsp;&nbsp;Royal College of Art, MA Sculpture  
+2014&nbsp;&nbsp;Arts University Bournemouth, BA (Hons) Modelmaking  
+2010&nbsp;&nbsp;Arts University Plymouth, Foundation Diploma in Art and Design  
 <br />  
 
 **public collections**  
