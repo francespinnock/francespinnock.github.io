@@ -57,15 +57,15 @@ World of Wearable Art . Wellington
 **biography**  
 2024&nbsp;&nbsp;Ingram Prize  
 2024&nbsp;&nbsp;Studio residency . Saraband Foundation  
-2023&nbsp;&nbsp;Royal College of Art, MA Sculpture  
+2023&nbsp;&nbsp;MA Sculpture . Royal College of Art   
 2023&nbsp;&nbsp;Scholarship . Gilbert Bayes Trust  
 2022&nbsp;&nbsp;Academic grant . The Leathersellers  
 2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust    
 2022&nbsp;&nbsp;Drawing Intensive . Royal Drawing School  
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2017&nbsp;&nbsp;Scholarship . QEST    
-2014&nbsp;&nbsp;Arts University Bournemouth, BA (Hons) Modelmaking  
-2010&nbsp;&nbsp;Arts University Plymouth, Foundation Diploma in Art and Design  
+2014&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
+2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth  
 <br />  
 
 **public collections**  
