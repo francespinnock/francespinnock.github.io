@@ -45,13 +45,13 @@ Welding Cultures . SoShiro Gallery, London
 Artefact . Design Centre Chelsea Harbour, London  
 
 2019  
-Messums . London & Wiltshire  
+Messums, London & Wiltshire  
 
 2014  
-BA Modelmaking, Arts University Bournemouth . London  
+BA Modelmaking Degree show . Arts University Bournemouth, London  
 
 2013  
-World of Wearable Art . Wellington  
+World of Wearable Art, Wellington  
 <br />  
 
 **biography**  
@@ -63,9 +63,11 @@ World of Wearable Art . Wellington
 2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust    
 2022&nbsp;&nbsp;Drawing Intensive . Royal Drawing School  
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2017&nbsp;&nbsp;Scholarship . QEST    
+2017&nbsp;&nbsp;Scholarship . QEST  
+2017&nbsp;&nbsp;Scholarship . The Arts Society  
 2014&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth  
+
 <br />  
 
 **public collections**  
