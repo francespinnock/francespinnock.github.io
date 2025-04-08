@@ -60,13 +60,13 @@ World of Wearable Art, Wellington
 
 **awards & residencies**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Studio Bursary . Sarabande: The Lee Alexander McQueen Foundation  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art    
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art      
+2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2019&nbsp;&nbsp;Leathersellers’ Award . Cockpit Arts  
-2017&nbsp;&nbsp;Scholarship . QEST  
-2017&nbsp;&nbsp;The Arts Society Scholarship . Heritage Craft Association  
+2017&nbsp;&nbsp;QEST Scholarship  
+2017&nbsp;&nbsp;The Arts Society Scholarship   
 <br />  
 
 **public collections**  
