@@ -9,11 +9,11 @@ lives and works in London
 
 **solo exhibitions**  
   
-[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London  
+[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London  
 (forthcoming)  
 3 October - 29 November 2025
 
-[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking  
+[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking  
 (forthcoming)  
 15 November 2025 - 18 January 2026  
 <br /> 
@@ -21,34 +21,34 @@ lives and works in London
 **group exhibitions**  
 
 2025  
-FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
+FOG Design+Art, San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
 2024  
-Ingram Collection . Unit 1 Gallery | Workshop, London  
-This Country . Crafts Council Gallery, London  
-Sculpted Matter . Sarah Myerscough Gallery, London  
-TEFAF . Maastricht, NL w/ Sarah Myerscough Gallery, London  
+Ingram Prize, Unit 1 Gallery | Workshop, London  
+This Country, Crafts Council Gallery, London  
+Sculpted Matter, Sarah Myerscough Gallery, London  
+TEFAF, Maastricht, NL w/ Sarah Myerscough Gallery, London  
 
 2023  
-MA Sculpture 2023 . Royal College of Art, London  
-Cut and Fold . Make Hauser & Wirth, Somerset  
-Material Beings . Cromwell Place, London  
-Hung, Drawn and Quartered . Standpoint Gallery, London    
+MA Sculpture 2023, Royal College of Art, London  
+Cut and Fold, Make Hauser & Wirth, Somerset  
+Material Beings, Cromwell Place, London  
+Hung, Drawn and Quartered, Standpoint Gallery, London    
 
 2022    
-Collect . Somerset House, London  w/ QEST  
-FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
+Collect 2022, Somerset House, London  w/ QEST  
+FOG Design+Art, San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
 2021  
-Future Heritage . Olympia, London  
-Welding Cultures . SoShiro Gallery, London  
-Artefact . Design Centre Chelsea Harbour, London  
+Future Heritage, Olympia, London  
+Welding Cultures, SoShiro Gallery, London  
+Artefact, Design Centre Chelsea Harbour, London  
 
 2019  
 Messums, London & Wiltshire  
 
 2014  
-BA Modelmaking Degree show . Arts University Bournemouth, London  
+BA Modelmaking Degree show, Arts University Bournemouth, London  
 
 2013  
 World of Wearable Art, Wellington  
@@ -56,17 +56,18 @@ World of Wearable Art, Wellington
 
 **biography**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Studio residency . Saraband Foundation  
-2023&nbsp;&nbsp;MA Sculpture . Royal College of Art   
-2023&nbsp;&nbsp;Scholarship . Gilbert Bayes Trust  
-2022&nbsp;&nbsp;Academic grant . The Leathersellers  
-2022&nbsp;&nbsp;Scholarship . The Leverhulme Trust    
-2022&nbsp;&nbsp;Drawing Intensive . Royal Drawing School  
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2017&nbsp;&nbsp;Scholarship . QEST  
-2017&nbsp;&nbsp;Scholarship . The Arts Society  
-2014&nbsp;&nbsp;BA (Hons) Modelmaking . Arts University Bournemouth  
-2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth  
+2024&nbsp;&nbsp;Studio Bursary, Sarabande: The Lee Alexander McQueen Foundation  
+2023&nbsp;&nbsp;MA Sculpture, Royal College of Art   
+2023&nbsp;&nbsp;Scholarship, Gilbert Bayes Trust  
+2022&nbsp;&nbsp;Academic grant, The Leathersellers  
+2022&nbsp;&nbsp;Scholarship, The Leverhulme Trust    
+2022&nbsp;&nbsp;Drawing Intensive, Royal Drawing School  
+2021&nbsp;&nbsp;Developing your Creative Practice, Arts Council England  
+2019&nbsp;&nbsp;Leathersellers’ Award, Cockpit Arts  
+2017&nbsp;&nbsp;Scholarship, QEST  
+2017&nbsp;&nbsp;Scholarship, The Arts Society / Heritage Craft Association  
+2014&nbsp;&nbsp;BA Hons Modelmaking, Arts University Bournemouth  
+2010&nbsp;&nbsp;Foundation Diploma in Art and Design, Arts University Plymouth  
 
 <br />  
 
