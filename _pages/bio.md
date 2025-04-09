@@ -8,7 +8,7 @@ lives and works in London
 <br />    
 
 **forthcoming**  
-[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery  
+Accoutrements & Illuminations . Sarah Myerscough Gallery, London  
 (solo)  
 3 October - 29 November 2025
 
