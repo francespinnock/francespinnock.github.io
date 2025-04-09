@@ -6,9 +6,9 @@ description: Frances Pinnock - Biography
 b. 1990, Bristol, UK  
 lives and works in London  
 <br />  
+<br />  
 
 **forthcoming**  
-
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London  
 (solo)  
 3 October - 29 November 2025
@@ -19,7 +19,6 @@ lives and works in London
 <br /> 
 
 **past group**  
-
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
@@ -54,8 +53,7 @@ BA Modelmaking Degree show . Arts University Bournemouth, London
 World of Wearable Art, Wellington  
 <br />  
 
-**biography (select)**  
-
+**select biography**  
 2024&nbsp;&nbsp;Ingram Prize  
 2024&nbsp;&nbsp;Artist residency . Sarabande: The Lee Alexander McQueen Foundation  
 2023&nbsp;&nbsp;MA Sculpture . Royal College of Art  
@@ -70,7 +68,6 @@ World of Wearable Art, Wellington
 <br />  
 
 **public collections**  
-
 Ingram Collection . Woking  
 Museum of Leathercraft . Northampton  
 <br />
