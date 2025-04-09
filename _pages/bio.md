@@ -4,7 +4,7 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 b. 1990, Bristol, UK  
-lives and works in London  
+visual artist based in London  
 <br />  
 <br />  
 
@@ -18,7 +18,7 @@ lives and works in London
 15 November 2025 - 18 January 2026  
 <br /> 
 
-**past group**  
+**group exhibitions**  
 2025  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
@@ -35,6 +35,7 @@ Material Beings . Cromwell Place, London
 Hung, Drawn and Quartered . Standpoint Gallery, London    
 
 2022    
+Formed with Future Heritage . Design Centre Chelsea Harbour, London  
 Collect . Somerset House, London  w/ QEST  
 FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
 
@@ -55,15 +56,16 @@ World of Wearable Art, Wellington
 
 **select biography**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Artist residency . Sarabande: The Lee Alexander McQueen Foundation  
+2024&nbsp;&nbsp;Artist in residence . Sarabande: The Lee Alexander McQueen Foundation  
 2023&nbsp;&nbsp;MA Sculpture . Royal College of Art  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2019&nbsp;&nbsp;Leathersellers’ Award . Cockpit Arts  
 2017&nbsp;&nbsp;QEST Scholarship  
 2017&nbsp;&nbsp;The Arts Society Scholarship . Heritage Crafts  
 2014&nbsp;&nbsp;BA Hons Modelmaking . Arts University Bournemouth  
+2013&nbsp;&nbsp;Design in Excellence Award Finalist . World of Wearable Art  
 2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth
 <br />  
 
