@@ -4,54 +4,54 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 b. 1990, Bristol, UK  
-visual artist based in London  
+lives and works in London  
 <br />  
 <br />  
 
 **forthcoming**  
-[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London  
+[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London, UK  
 (solo)  
 3 October - 29 November 2025
 
-[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking  
+[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking, UK  
 (solo)  
 15 November 2025 - 18 January 2026  
 <br /> 
 
 **group exhibitions**  
 2025  
-FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
+FOG Design+Art, Sarah Myerscough Gallery . San Francisco, USA  
 
 2024  
-Ingram Prize . Unit 1 Gallery | Workshop, London  
-This Country . Crafts Council Gallery, London  
-Sculpted Matter . Sarah Myerscough Gallery, London  
-TEFAF Maastricht . NL w/ Sarah Myerscough Gallery, London  
+Ingram Prize . Unit 1 Gallery | Workshop, London, UK  
+This Country . Crafts Council Gallery, London, UK  
+Sculpted Matter . Sarah Myerscough Gallery, London (online)  
+TEFAF Maastricht, Sarah Myerscough Gallery, Maastricht, NL  
 
 2023  
-MA Sculpture 2023 . Royal College of Art, London  
-Cut and Fold . Make Hauser & Wirth, Somerset  
-Material Beings . Cromwell Place, London  
-Hung, Drawn and Quartered . Standpoint Gallery, London    
+MA Sculpture 2023 . Royal College of Art, London, UK  
+Cut and Fold . Make Hauser & Wirth, Somerset, UK  
+Material Beings . Cromwell Place, London, UK  
+Hung, Drawn and Quartered . Standpoint Gallery, London, UK    
 
 2022    
-Formed with Future Heritage . Design Centre Chelsea Harbour, London  
-Collect . Somerset House, London  w/ QEST  
-FOG Design+Art . San Francisco, USA w/ Sarah Myerscough Gallery, London  
+Formed with Future Heritage . Design Centre Chelsea Harbour, London, UK  
+Collect, QEST . Somerset House, London, UK  
+FOG Design+Art, Sarah Myerscough Gallery . San Francisco, USA  
 
 2021  
-Future Heritage . Olympia, London  
-Welding Cultures . SoShiro Gallery, London  
-Artefact . Design Centre Chelsea Harbour, London  
+Future Heritage . Olympia, London, UK  
+Welding Cultures . SoShiro Gallery, London, UK  
+Artefact . Design Centre Chelsea Harbour, London, UK  
 
 2019  
-Messums . London & Wiltshire  
+Messums . London & Wiltshire, UK  
 
 2014  
-BA Modelmaking Degree show . Arts University Bournemouth, London  
+BA Modelmaking Degree show . Arts University Bournemouth, London, UK  
 
 2013  
-World of Wearable Art, Wellington  
+World of Wearable Art, Wellington, NZ  
 <br />  
 
 **select biography**  
