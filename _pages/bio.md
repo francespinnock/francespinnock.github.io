@@ -5,8 +5,7 @@ description: Frances Pinnock - Biography
 ---  
 b. 1990, Bristol, UK  
 lives and works in London  
-<br />  
-<br />  
+<br />    
 
 **forthcoming**  
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery  
@@ -20,7 +19,7 @@ lives and works in London
 
 **selected exhibitions**  
 <br />  
-**group**
+**group**  
 2025&nbsp;&nbsp;FOG Design+Art, Sarah Myerscough Gallery . San Francisco  
 
 2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London  
@@ -41,7 +40,7 @@ lives and works in London
 
 2019&nbsp;&nbsp;Messums . London & Wiltshire  
 
-2014&nbsp;&nbsp;BA Modelmaking Degree show . Arts University Bournemouth, London  
+2014&nbsp;&nbsp;BA Modelmaking Degree show . Hoborn Studios, London  
 
 2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
 <br />  
@@ -59,8 +58,8 @@ lives and works in London
 <br />  
 
 **education**  
-2023&nbsp;&nbsp;MA Sculpture . Royal College of Art
-2014&nbsp;&nbsp;BA Hons Modelmaking . Arts University Bournemouth
+2023&nbsp;&nbsp;MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;BA Hons Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth  
 <br />
 
