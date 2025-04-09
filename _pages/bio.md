@@ -16,10 +16,8 @@ Accoutrements & Illuminations . Sarah Myerscough Gallery, London
 (solo)  
 15 November 2025 - 18 January 2026  
 <br /> 
-
-**selected exhibitions**  
 <br />  
-**group**  
+**past group**  
 2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA  
 
 2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London, UK  
@@ -47,10 +45,10 @@ Accoutrements & Illuminations . Sarah Myerscough Gallery, London
 
 **awards**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
+2024&nbsp;&nbsp;Sarabande Foundation  
 2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
 2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
+2021&nbsp;&nbsp;DYCP . Arts Council England  
 2019&nbsp;&nbsp;Leathersellers’ Award  
 2017&nbsp;&nbsp;QEST Scholarship  
 2017&nbsp;&nbsp;The Arts Society Scholarship  
@@ -64,8 +62,8 @@ Accoutrements & Illuminations . Sarah Myerscough Gallery, London
 <br />
 
 **public collections**  
-2024&nbsp;&nbsp;Ingram Collection . Woking  
-2021&nbsp;&nbsp;Museum of Leathercraft . Northampton  
+2024&nbsp;&nbsp;Ingram Collection . Woking, UK  
+2021&nbsp;&nbsp;Museum of Leathercraft . Northampton, UK  
 <br />
 
 
