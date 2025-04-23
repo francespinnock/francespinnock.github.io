@@ -43,15 +43,17 @@ lives and works in London
 2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
 <br />  
 
-**awards**  
+**awards, scholarships & residencies**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Sarabande Foundation  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
-2021&nbsp;&nbsp;Arts Council England  
-2019&nbsp;&nbsp;Leathersellers’ Award  
-2017&nbsp;&nbsp;QEST Scholarship  
-2013&nbsp;&nbsp;World of Wearable Art  
+2024&nbsp;&nbsp;Studio residency . Sarabande Foundation  
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
+2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
+2019&nbsp;&nbsp;Leathersellers’ Award . Cockpit Arts  
+2017&nbsp;&nbsp;Scholarship . QEST  
+2017&nbsp;&nbsp;The Arts Society Scholarship . Heritage Crafts Association  
+2013&nbsp;&nbsp;Design in Excellence award finalist . World of Wearable Art  
 <br />  
 
 **education**  
