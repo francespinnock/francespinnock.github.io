@@ -7,17 +7,15 @@ b. 1990, Bristol
 lives and works in London  
 <br />    
 
-**forthcoming**  
+**upcoming solo exhibitions**  
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/) . Sarah Myerscough Gallery, London  
-(solo)  
 3 October - 29 November 2025
 
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper) . Lightbox Gallery, Woking  
-(solo)  
 15 November 2025 - 18 January 2026  
 <br /> 
 <br />  
-**past**  
+**past group**  
 2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA  
 
 2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London, UK  
