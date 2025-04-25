@@ -48,6 +48,7 @@ lives and works in London
 
 2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth, UK
 <br />  
+<br />
 
 **public collections**  
 2024&nbsp;&nbsp;Ingram Collection . Woking, UK  
