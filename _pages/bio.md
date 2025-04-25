@@ -42,7 +42,7 @@ Lightbox Gallery, Woking
 
 2019&nbsp;&nbsp;Messums . London & Wiltshire, UK  
 
-2017&nbsp;&nbsp;Scholarship . QEST  
+2017&nbsp;&nbsp;QEST Scholarship  
 
 2014&nbsp;&nbsp;BA Modelmaking Degree show . Hoborn Studios, London, UK  
 
