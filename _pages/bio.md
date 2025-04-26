@@ -48,6 +48,7 @@ lives and works in London
 
 **print press**  
 2024&nbsp;&nbsp;Lets's all go to hide . Financial Times, Emma Crichton Miller  
+2023&nbsp;&nbsp;Network Art & Antiques . World of Interiors, Clare Holley  
 2022&nbsp;&nbsp;Dream Maker . Leathersellers' Review, Jessica Bumpus  
 2022&nbsp;&nbsp;An Oak Leather Forest . Selvedge, Corinne Julius  
 2021&nbsp;&nbsp;Tirer le fil d'Ariane . Ateliers d'Art, Valerie Vidal  
