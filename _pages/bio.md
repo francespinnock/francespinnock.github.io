@@ -58,7 +58,7 @@ lives and works in London
 2024&nbsp;&nbsp;Sarabande  
 <br />  
 
-**awardss**  
+**awards**  
 2024&nbsp;&nbsp;Ingram Prize  
 2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
 2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
@@ -72,7 +72,6 @@ lives and works in London
 
 **education**  
 2023&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
-2022&nbsp;&nbsp;Drawing Intensive .  Royal Drawing School, UK  
 2014&nbsp;&nbsp;BA Hons Modelmaking . Arts University Bournemouth, UK  
 2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth, UK  
 <br />
