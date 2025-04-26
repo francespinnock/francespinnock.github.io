@@ -7,7 +7,7 @@ b. 1990, Bristol
 lives and works in London  
 <br />    
 
-**upcoming solo**  
+**solo**  
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London  
 3 October - 29 November 2025
 
@@ -16,38 +16,46 @@ lives and works in London
 <br /> 
 <br />  
 **group**  
-2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA  
+2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco  
 
-2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London, UK  
-2024&nbsp;&nbsp;This Country . Crafts Council Gallery, London, UK  
-2024&nbsp;&nbsp;TEFAF Maastricht . Sarah Myerscough Gallery, Maastricht, NL  
+2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London  
+2024&nbsp;&nbsp;This Country . Crafts Council Gallery, London  
+2024&nbsp;&nbsp;TEFAF Maastricht . Sarah Myerscough Gallery, Maastricht  
 
-2023&nbsp;&nbsp;MA Sculpture 2023 . Royal College of Art, London, UK  
-2023&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
-2023&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
-2023&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
+2023&nbsp;&nbsp;MA Sculpture 2023 . Royal College of Art, London  
+2023&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset  
+2023&nbsp;&nbsp;Material Beings . Cromwell Place, London  
+2023&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London  
 
-2022&nbsp;&nbsp;Collect, QEST . Somerset House, London, UK  
-2022&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA    
+2022&nbsp;&nbsp;Collect, QEST . Somerset House, London  
+2022&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco    
 
-2021&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
-2021&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London, UK  
-2021&nbsp;&nbsp;Artefact . Design Centre Chelsea Harbour, London, UK    
+2021&nbsp;&nbsp;Future Heritage . Olympia, London  
+2021&nbsp;&nbsp;Welding Cultures . SoShiro Gallery, London  
+2021&nbsp;&nbsp;Artefact . Design Centre Chelsea Harbour, London    
 
-2019&nbsp;&nbsp;Messums . London & Wiltshire, UK    
+2019&nbsp;&nbsp;Messums . London & Wiltshire    
 
-2014&nbsp;&nbsp;BA Modelmaking Degree show . Hoborn Studios, London, UK  
+2014&nbsp;&nbsp;BA Modelmaking Degree show . Hoborn Studios, London  
 
-2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
+2013&nbsp;&nbsp;World of Wearable Art, Wellington  
 <br />  
 
 **public collections**  
-2024&nbsp;&nbsp;Ingram Collection . Woking, UK  
-2021&nbsp;&nbsp;Museum of Leathercraft . Northampton, UK  
+2024&nbsp;&nbsp;Ingram Collection   
+2021&nbsp;&nbsp;Museum of Leathercraft   
 <br />  
 
+**print press**  
+2024&nbsp;&nbsp;Lets's all go to hide . Financial Times, Emma Crichton Miller  
+2022&nbsp;&nbsp;Dream Maker . Leathersellers' Review, Jessica Bumpus  
+2022&nbsp;&nbsp;An Oak Leather Forest . Selvedge, Corinne Julius  
+2021&nbsp;&nbsp;Tirer le fil d'Ariane . Ateliers d'Art, Valerie Vidal  
+2021&nbsp;&nbsp;The Future In their Hands . House and Garden, Corine Julius  
+2021&nbsp;&nbsp;New Talent . Craft, Isabella Smith  
+
 **residencies**  
-2024&nbsp;&nbsp;Studio residency . Sarabande Foundation  
+2024&nbsp;&nbsp;Sarabande  
 <br />  
 
 **awardss**  
@@ -57,9 +65,9 @@ lives and works in London
 2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
 2019&nbsp;&nbsp;Leathersellers’ Award  
-2017&nbsp;&nbsp; QEST Scholarship  
-2017&nbsp;&nbsp;The Arts Society Scholarship   
-2013&nbsp;&nbsp;Design in Excellence award finalist . World of Wearable Art  
+2017&nbsp;&nbsp;QEST Scholarship  
+2017&nbsp;&nbsp;Arts Society Scholarship   
+2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
 <br />  
 
 **education**  
