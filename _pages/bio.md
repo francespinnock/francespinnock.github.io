@@ -5,7 +5,7 @@ description: Frances Pinnock - Biography
 ---  
 b. 1990, Bristol  
 lives and works in London  
-<br />    
+<br />  
 
 **solo**  
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London  
@@ -13,8 +13,8 @@ lives and works in London
 
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking  
 15 November 2025 - 18 January 2026  
-<br /> 
 <br />  
+
 **group**  
 2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco  
 
@@ -54,6 +54,7 @@ lives and works in London
 2021&nbsp;&nbsp;Tirer le fil d'Ariane . Ateliers d'Art, Valerie Vidal  
 2021&nbsp;&nbsp;The Future In their Hands . House and Garden, Corine Julius  
 2021&nbsp;&nbsp;New Talent . Craft, Isabella Smith  
+<br />  
 
 **residencies**  
 2024&nbsp;&nbsp;Sarabande  
