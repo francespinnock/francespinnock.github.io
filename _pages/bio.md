@@ -44,13 +44,12 @@ lives and works in London, UK
 <br />  
 
 **residencies & awards**  
-2024&nbsp;&nbsp;Sarabande  
+2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 2024&nbsp;&nbsp;Ingram Prize  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2019&nbsp;&nbsp;Leathersellers’ Award  
+2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England    
 2017&nbsp;&nbsp;QEST Scholarship  
 2017&nbsp;&nbsp;Arts Society Scholarship   
 2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
