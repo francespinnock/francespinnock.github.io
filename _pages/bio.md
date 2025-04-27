@@ -45,7 +45,7 @@ lives and works in London, UK
 
 **residencies & awards**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation
+2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
