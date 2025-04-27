@@ -27,6 +27,7 @@ lives and works in London
 2023&nbsp;&nbsp;Material Beings . Cromwell Place, London  
 2023&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London  
 
+2022&nbsp;&nbsp;Salon des Refusés . The Tub, London  
 2022&nbsp;&nbsp;Collect, QEST . Somerset House, London  
 2022&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco    
 
@@ -44,39 +45,8 @@ lives and works in London
 **public collections**  
 2024&nbsp;&nbsp;Ingram Collection   
 2021&nbsp;&nbsp;Museum of Leathercraft   
+<br />   
 <br />  
-
-**print press**  
-2024&nbsp;&nbsp;Lets's all go to hide . Financial Times, Emma Crichton Miller  
-2023&nbsp;&nbsp;Network Art & Antiques . World of Interiors, Clare Holley  
-2022&nbsp;&nbsp;Dream Maker . Leathersellers' Review, Jessica Bumpus  
-2022&nbsp;&nbsp;An Oak Leather Forest . Selvedge, Corinne Julius  
-2021&nbsp;&nbsp;Tirer le fil d'Ariane . Ateliers d'Art, Valerie Vidal  
-2021&nbsp;&nbsp;The Future In their Hands . House and Garden, Corine Julius  
-2021&nbsp;&nbsp;New Talent . Craft, Isabella Smith  
-<br />  
-
-**residencies**  
-2024&nbsp;&nbsp;Sarabande  
-<br />  
-
-**awards**  
-2024&nbsp;&nbsp;Ingram Prize  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship  
-2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
-2019&nbsp;&nbsp;Leathersellers’ Award  
-2017&nbsp;&nbsp;QEST Scholarship  
-2017&nbsp;&nbsp;Arts Society Scholarship   
-2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
-<br />  
-
-**education**  
-2023&nbsp;&nbsp;MA Sculpture . Royal College of Art, UK  
-2014&nbsp;&nbsp;BA Hons Modelmaking . Arts University Bournemouth, UK  
-2010&nbsp;&nbsp;Foundation Diploma in Art and Design . Arts University Plymouth, UK  
-<br />
 
 
 
