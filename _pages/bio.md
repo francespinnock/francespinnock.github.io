@@ -43,8 +43,8 @@ lives and works in London
 <br />  
 
 **public collections**  
-2024&nbsp;&nbsp;Ingram Collection   
-2021&nbsp;&nbsp;Museum of Leathercraft   
+Ingram Collection   
+Museum of Leathercraft   
 <br />   
 <br />  
 
