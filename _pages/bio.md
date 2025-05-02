@@ -7,12 +7,6 @@ b. 1990, Bristol, UK
 lives and works in London, UK
 <br />  
 
-**education**  
-2022 - 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
-2011 - 2014 &nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
-<br />  
-
 **solo exhibitions**    
 2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (Forthcoming)  
 2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (Forthcoming)  
@@ -52,6 +46,12 @@ lives and works in London, UK
 **residencies**  
 2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 <br />  
+
+**education**  
+2022 - 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
+2011 - 2014 &nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
+2009 - 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
+<br />
 
 **public collections**  
 Ingram Collection   
