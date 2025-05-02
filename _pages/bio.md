@@ -6,11 +6,11 @@ description: Frances Pinnock - Biography
 b. 1990, Bristol, UK  
 lives and works in London, UK  
 <br />  
-<br />
+
 
 **solo exhibitions**    
 2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (Forthcoming)  
-2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (Forthcoming) 
+2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (Forthcoming)  
 <br />  
 
 **selected group exhibitions**  
