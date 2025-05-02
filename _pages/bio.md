@@ -3,8 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-b. 1990, Bristol, UK  
-lives and works in London, UK  
+Frances Pinnock (b. 1990, Bristol, UK) is a artist living and working in London. Her work is multidisciplinary with a focus on sculpture. She is currently artist in residence at Sarabande Foundation and in 2024 was awarded the Ingram Prize for her work Light Sleeper, 2024.   
 <br />  
 
 
