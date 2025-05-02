@@ -3,9 +3,15 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-Frances Pinnock (b. 1990, Bristol, UK) is a artist living and working in London. Her work is multidisciplinary with a focus on sculpture. She is currently artist in residence at Sarabande Foundation and in 2024 was awarded the Ingram Prize for her work Light Sleeper, 2024.   
+b. 1990, Bristol, UK  
+lives and works in London, UK
 <br />  
 
+**education**  
+2022 - 2023&nbsp;&nbsp;Royal College of Art . MA, Sculpture  
+2011  - 2014&nbsp;&nbsp;Arts University Bournemouth . BA Hons, Modelmaking  
+2009 - 2010&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma, Art & Design  
+<br />  
 
 **solo exhibitions**    
 2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (Forthcoming)  
@@ -45,12 +51,6 @@ Frances Pinnock (b. 1990, Bristol, UK) is a artist living and working in London.
 
 **residencies**  
 2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
-<br />  
-
-**education**  
-2022 - 2023&nbsp;&nbsp;Royal College of Art . MA, Sculpture  
-2011  - 2014&nbsp;&nbsp;Arts University Bournemouth . BA Hons, Modelmaking  
-2009 - 2010&nbsp;&nbsp;Arts University Plymouth . Foundation Diploma, Art & Design  
 <br />  
 
 **public collections**  
