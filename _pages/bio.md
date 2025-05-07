@@ -3,8 +3,8 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-Frances Pinnock (b. 1990, Bristol, UK) is an artist working across sculpture, painting and drawing.   
-She lives and works in London, UK.
+b. 1990, Bristol, UK  
+lives and works in London, UK.
 <br />  
 <br />  
 
