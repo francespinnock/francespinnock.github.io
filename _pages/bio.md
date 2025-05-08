@@ -6,6 +6,11 @@ description: Frances Pinnock - Biography
 b. 1990, Bristol, UK  
 lives and works in London, UK
 <br />  
+
+**education**  
+2022 - 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
+2011 - 2014 &nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
+2009 - 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
 <br />  
 
 **solo exhibitions**    
@@ -47,12 +52,6 @@ lives and works in London, UK
 **residencies**  
 2024&nbsp;&nbsp;Sarabande: The Lee Alexander McQueen Foundation  
 <br />  
-
-**education**  
-2022 - 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
-2011 - 2014 &nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
-<br />
 
 **public collections**  
 Ingram Collection   
