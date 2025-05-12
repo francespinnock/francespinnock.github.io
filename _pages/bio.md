@@ -7,9 +7,9 @@ b. 1990, Bristol, UK
 lives and works in London, UK  
 <br />  
 
-**solo exhibitions**    
-2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (Forthcoming)  
-2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (Forthcoming)  
+**forthcoming exhibitions**    
+2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (solo)  
+2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (solo)  
 <br />  
 
 **selected group exhibitions**  
@@ -21,7 +21,6 @@ lives and works in London, UK
 2023&nbsp;&nbsp;Cut and Fold . Make Hauser & Wirth, Somerset, UK  
 2023&nbsp;&nbsp;Material Beings . Cromwell Place, London, UK  
 2023&nbsp;&nbsp;Hung, Drawn and Quartered . Standpoint Gallery, London, UK  
-2022&nbsp;&nbsp;Salon des Refusés . The Tub, London, UK  
 2022&nbsp;&nbsp;Collect, QEST . Somerset House, London, UK  
 2022&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA  
 2021&nbsp;&nbsp;Future Heritage . Olympia, London, UK  
