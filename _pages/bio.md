@@ -48,9 +48,9 @@ lives and works in London, UK
 <br />  
 
 **education**  
-2022 - 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
-2011 - 2014 &nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
-2009 - 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
+2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
+2014&nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
+2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
 <br />  
 
 **public collections**  
