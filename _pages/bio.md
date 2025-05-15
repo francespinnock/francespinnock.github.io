@@ -36,6 +36,7 @@ lives and works in London, UK
 
 **awards, grants & scholarships**  
 2024&nbsp;&nbsp;Ingram Prize  
+2024&nbsp;&nbsp;Sarabande Foundation subsidised studio  
 2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
 2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
