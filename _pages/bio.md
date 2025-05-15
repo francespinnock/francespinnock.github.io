@@ -12,7 +12,7 @@ lives and works in London, UK
 3 October - 29 November 2025  
 
 2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  (solo)  
-15 November - 18 January 2026
+15 November - 18 January 2026  
 <br />  
 
 **selected group exhibitions**  
