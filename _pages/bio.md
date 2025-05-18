@@ -34,18 +34,21 @@ lives and works in London, UK
 2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
 <br />  
 
-**biography**  
+**awards & residencies**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Studio award . Sarabande Foundation  
-2023&nbsp;&nbsp;MA Sculpture . Royal College of Art  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2024&nbsp;&nbsp;Sarabande Foundation    
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Gilbert Bayes Charitable Trust for Sculptors   
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship . The Leverhulme Trust  
 2022&nbsp;&nbsp;Academic Grant . The Leathersellers   
 2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England    
 2017&nbsp;&nbsp;Scholarship . QEST  
-2017&nbsp;&nbsp;Scholarship . The Arts Society  
-2014&nbsp;&nbsp;BA Hons. Modelmaking . Arts University Bournemouth  
+2017&nbsp;&nbsp;Scholarship . The Arts Society    
 2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
+<br />  
+
+**education**  
+2023&nbsp;&nbsp;MA Sculpture . Royal College of Art  
+2014&nbsp;&nbsp;BA Hons. Modelmaking . Arts University Bournemouth  
 2010&nbsp;&nbsp;Foundation Diploma Art & Design . Arts University Plymouth  
 <br />  
 
