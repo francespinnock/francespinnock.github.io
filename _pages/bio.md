@@ -15,6 +15,9 @@ lives and works in London, UK
 15 November - 18 January 2026  
 <br />  
 
+__________________________________________________________________________________________________________________________________________________________________________  
+<br />  
+
 **selected group exhibitions**  
 2025&nbsp;&nbsp;FOG Design+Art . Sarah Myerscough Gallery, San Francisco, USA  
 2024&nbsp;&nbsp;Ingram Prize . Unit 1 Gallery | Workshop, London, UK  
@@ -34,7 +37,7 @@ lives and works in London, UK
 2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
 <br />  
 
-**abiography**  
+**biography**  
 2024&nbsp;&nbsp;Ingram Prize  
 2024&nbsp;&nbsp;Studio award, Sarabande Foundation  
 2023&nbsp;&nbsp;MA Sculpture, Royal College of Art
