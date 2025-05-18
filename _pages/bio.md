@@ -7,7 +7,7 @@ b. 1990, Bristol, UK
 lives and works in London, UK  
 <br />  
 
-**forthcoming exhibitions**    
+**forthcoming**    
 2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  (solo)  
 3 October - 29 November 2025  
 
@@ -34,21 +34,18 @@ lives and works in London, UK
 2013&nbsp;&nbsp;World of Wearable Art, Wellington, NZ  
 <br />  
 
-**awards, grants & scholarships**  
+**abiography**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Sarabande Foundation subsidised studio  
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
-2022&nbsp;&nbsp;Leathersellers’ Academic Grant  
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England    
-2017&nbsp;&nbsp;QEST Scholarship  
-2017&nbsp;&nbsp;Arts Society Scholarship   
-2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
-<br />    
-
-**education**  
-2023&nbsp;&nbsp;MA Sculpture, Royal College of Art  
-2014&nbsp;&nbsp;BA (Hons) Modelmaking, Arts University Bournemouth  
+2024&nbsp;&nbsp;Studio award, Sarabande Foundation  
+2023&nbsp;&nbsp;MA Sculpture, Royal College of Art
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship, Royal College of Art  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship, Royal College of Art  
+2022&nbsp;&nbsp;Academic Grant, The Leathersellers   
+2021&nbsp;&nbsp;Developing your Creative Practice, Arts Council England    
+2017&nbsp;&nbsp;Scholarship, QEST  
+2017&nbsp;&nbsp;Scholarship, The Arts Society  
+2014&nbsp;&nbsp;BA Hons. Modelmaking, Arts University Bournemouth  
+2013&nbsp;&nbsp;Design in Excellence Award finalist, World of Wearable Art  
 2010&nbsp;&nbsp;Foundation Diploma Art & Design, Arts University Plymouth  
 <br />  
 
