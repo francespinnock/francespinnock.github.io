@@ -7,11 +7,11 @@ b. 1990, Bristol, UK
 lives and works in London, UK  
 <br />  
 
-**solo exhibitions**    
-2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK  
+**forthcoming**    
+2025&nbsp;&nbsp;[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-solo-show-gallery-solo-show-2025/), Sarah Myerscough Gallery, London, UK (solo exhibition)  
 3 October - 29 November 2025  
 
-2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK  
+2025&nbsp;&nbsp;[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery, Woking, UK (solo exhibition)  
 15 November - 18 January 2026  
 <br />  
 
@@ -36,13 +36,13 @@ lives and works in London, UK
 
 **awards & residencies**  
 2024&nbsp;&nbsp;Ingram Prize  
-2024&nbsp;&nbsp;Sarabande Foundation    
-2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Gilbert Bayes Charitable Trust for Sculptors   
-2022&nbsp;&nbsp;Leverhulme Arts Scholarship . The Leverhulme Trust  
-2022&nbsp;&nbsp;Academic Grant . The Leathersellers   
-2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England    
-2017&nbsp;&nbsp;Scholarship . QEST  
-2017&nbsp;&nbsp;Scholarship . The Arts Society    
+2024&nbsp;&nbsp;Sarabande Foundation  
+2023&nbsp;&nbsp;Gilbert Bayes Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leverhulme Arts Scholarship . Royal College of Art  
+2022&nbsp;&nbsp;Leathersellers Academic Grant  
+2021&nbsp;&nbsp;Developing your Creative Practice . Arts Council England  
+2017&nbsp;&nbsp;QEST Scholarship  
+2017&nbsp;&nbsp;The Arts Society Scholarship  
 2013&nbsp;&nbsp;Design in Excellence Award finalist . World of Wearable Art  
 <br />  
 
