@@ -18,7 +18,13 @@ _Accoutrements & Illuminations_, Sarah Myerscough Gallery, London (solo)
 (3 October - 29 November 2025)  
 
 _Light Sleeper_, Lightbox Gallery, Woking (solo)  
-(15 November 2025 - 18 January 2026)
+(15 November 2025 - 18 January 2026)  
+
+<br/>  
+<br/>  
+[View CV](cv.pdf){:target="_blank"}
+
+
    
  
 
