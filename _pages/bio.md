@@ -11,7 +11,7 @@ Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in L
 
 Group:  
 
-_Pinpoint_Sarabande Foundation, London  
+_Pinpoint_ Sarabande Foundation, London  
 18 – 21 July 2025  
 
 Solo:  
