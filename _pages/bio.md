@@ -9,7 +9,12 @@ Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in L
 
 **Forthcoming**  
 
-Solo Exhibitions:  
+Group:  
+
+_Pinpoint_Sarabande Foundation, London  
+18 – 21 July 2025  
+
+Solo:  
 
 _Accoutrements & Illuminations_, Sarah Myerscough Gallery, London  
 9 October - 29 November 2025  
