@@ -12,7 +12,7 @@ lives and works in London, UK
 
   
 
-Solo:  
+Solo exhibitions:  
 
 _Accoutrements & Illuminations_, Sarah Myerscough Gallery, London  
 10 October - 29 November 2025  
