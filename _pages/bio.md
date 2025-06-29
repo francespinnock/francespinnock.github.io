@@ -4,7 +4,8 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 <br/>  
-Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London. She received her MA in Sculpture from the Royal College of Art, London, UK and her BA (Hons) from Arts University Bournemouth, UK. Recent exhibitions include: FOG Design+Art, San Francisco, USA (2025); Unit 1 Gallery | Workshop, London, UK (2024); TEFAF Maastricht, NL (2024); Crafts Council Gallery, London, UK (2024); Royal College of Art, London, UK (2023); Make Hauser & Wirth, Somerset, UK (2023); Cromwell Place, London, UK (2023); Standpoint Gallery, London, UK (2023).  
+b. 1990 Bristol, UK
+lives and works in London, UK  
 <br/>  
 
 **Forthcoming**  
