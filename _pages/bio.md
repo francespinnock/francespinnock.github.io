@@ -17,7 +17,7 @@ Solo exhibitions:
 _[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/)_, Sarah Myerscough Gallery, London  
 10 October - 29 November 2025  
 
-_Light Sleeper_, Lightbox Gallery & Museum, Woking  
+_[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)_, Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026
 
 
