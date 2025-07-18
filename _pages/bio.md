@@ -8,13 +8,6 @@ b. 1990 Bristol, UK
 lives and works in London, UK  
 <br/>  
 
-**Current**  
-
-Group:  
-
-_Pinpoint_, Sarabande Foundation, Tottenham Gallery, London  
-18 - 20 July 2025  
-<br/>  
 
 **Forthcoming**  
 
