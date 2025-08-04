@@ -11,8 +11,8 @@ lives and works in London, UK
 
 **Forthcoming**  
 
-PAD London, Sarah Myerscough Gallery, London
-14-19 October 2025  
+PAD London, Sarah Myerscough Gallery, London  
+14 - 19 October 2025  
 
 Solo:  
 
