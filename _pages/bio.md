@@ -11,11 +11,13 @@ lives and works in London, UK
 
 **Forthcoming**  
 
+Group exhibitions:  
+
 PAD London, Sarah Myerscough Gallery, London  
 14 - 19 October 2025  
 <br/>  
 
-Solo:  
+Solo exhibitions:  
 
 _[Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/)_, Sarah Myerscough Gallery, London  
 13 October - 29 November 2025  
