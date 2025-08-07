@@ -29,7 +29,7 @@ _[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-s
 Talks:  
 
 In conversation with Jo Baring at Lightbox Gallery & Museum, Woking  
-4 December 2025
+1pm, 4 December 2025
 
 <br/>  
 <br/>  
