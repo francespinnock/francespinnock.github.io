@@ -26,11 +26,6 @@ _[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-s
 15 November 2025 – 18 January 2026  
 <br/>  
 
-Talks:  
-
-In conversation with Jo Baring at Lightbox Gallery & Museum, Woking  
-1pm, 4 December 2025
-
 <br/>  
 <br/>  
 
