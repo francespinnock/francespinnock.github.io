@@ -31,7 +31,7 @@ _[Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-s
 <br/>  
 
 _In conversation with Jo Baring_, Lightbox Gallery & Museum, Woking  
-4 December, 2025  
+4 December 2025  
 1pm  
 <br/>  
 <br/>  
