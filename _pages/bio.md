@@ -11,7 +11,7 @@ based in London, UK
 
 **Forthcoming**  
 
-[Frances Pinnock - Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/)_, Sarah Myerscough Gallery, London  
+_[Frances Pinnock - Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/)_, Sarah Myerscough Gallery, London  
 13 October - 29 November 2025  
 
 Upper Gallery, The Schoolhouse, 18 Balderton Street, Mayfair London, W1K 6TG
@@ -22,7 +22,7 @@ Vernissage - Private View
 RSVP - marketing@sarahmyerscough.com  
 <br/>  
 
-PAD London w/ Sarah Myerscough Gallery, London  
+_[PAD London](https://www.padesignart.com/en/london/)_ w/ Sarah Myerscough Gallery, London  
 14 - 19 October 2025  
 <br/>  
 
@@ -30,8 +30,8 @@ _[Frances Pinnock - Light Sleeper](https://www.thelightbox.org.uk/whats-on/franc
 15 November 2025 – 18 January 2026  
 <br/>  
 
-In conversation with Jo Baring, Lightbox Gallery & Museum, Woking  
-4 December, 2026  
+_Frances Pinnock in conversation with Jo Baring_, Lightbox Gallery & Museum, Woking  
+4 December, 2025  
 1pm  
 <br/>  
 <br/>  
