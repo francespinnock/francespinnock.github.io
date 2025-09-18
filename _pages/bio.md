@@ -4,10 +4,7 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 <br/>  
-b. 1990 UK  
-based in London, UK  
 <br/>  
-
 
 **Forthcoming**  
 
