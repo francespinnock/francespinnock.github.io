@@ -19,10 +19,6 @@ description: Frances Pinnock - Biography
    RSVP - marketing@sarahmyerscough.com  
 <br/>  
 
-[PAD London](https://www.padesignart.com/en/london/) w/ Sarah Myerscough Gallery, London  
-14 - 19 October 2025  
-<br/>  
-
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
