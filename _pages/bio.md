@@ -3,10 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-<br/>  
-<br/>  
-[CV](cv.pdf){:target="_blank"}  
-<br/>  
+  
 <br/>
 
 **Forthcoming**  
@@ -32,6 +29,8 @@ In conversation with Jo Baring
 1pm  
 <br/>  
 <br/>  
+
+[CV](cv.pdf){:target="_blank"} 
 
 
 
