@@ -5,6 +5,9 @@ description: Frances Pinnock - Biography
 ---  
 <br/>  
 <br/>  
+[CV](cv.pdf){:target="_blank"}  
+<br/>  
+<br/>
 
 **Forthcoming**  
 
@@ -24,6 +27,7 @@ description: Frances Pinnock - Biography
 <br/>  
 
 [Artist Talk](https://www.thelightbox.org.uk/whats-on/art-talk-frances-pinnock), Lightbox Gallery & Museum, Woking  
+In conversation with Jo Baring  
 4 December 2025  
 1pm  
 <br/>  
@@ -31,8 +35,6 @@ description: Frances Pinnock - Biography
 
 
 
-[CV](cv.pdf){:target="_blank"}  
-<br/>
 
 
 
