@@ -15,9 +15,10 @@ description: Frances Pinnock - Biography
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
+<br/>  
+<br/>  
 
 
-  
 [CV](cv.pdf){:target="_blank"} 
 
 
