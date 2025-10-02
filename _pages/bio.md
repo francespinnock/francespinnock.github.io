@@ -4,9 +4,7 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
   
-<br/> 
-Frances Pinnock is a visual artist based in London, UK.  
-<br/> 
+<br/>  
 <br/>  
   
 
