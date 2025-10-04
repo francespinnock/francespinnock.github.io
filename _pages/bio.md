@@ -11,7 +11,8 @@ Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in L
 
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/), Sarah Myerscough Gallery, London  
 13 October - 29 November 2025  
-PV 14 October 6 - 8pm   RSVP marketing@sarahmyerscough.com  
+PV 14 October 6 - 8pm  
+RSVP marketing@sarahmyerscough.com  
  
 <br/>  
 
