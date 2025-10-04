@@ -10,10 +10,9 @@ Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in L
 **Forthcoming**  
 
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/), Sarah Myerscough Gallery, London  
-13 October - 29 November 2025 
-PV - 14 October 6 - 8pm   RSVP marketing@sarahmyerscough.com  
-
-Exhibition essay [The Endings](THE ENDINGS SK.pdf){:target="_blank"} by Sharon Kivland 
+13 October - 29 November 2025  
+PV 14 October 6 - 8pm   RSVP marketing@sarahmyerscough.com  
+ 
 <br/>  
 
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking  
