@@ -3,10 +3,11 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-  
+Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London, UK.
 <br/>  
 <br/>  
   
+**Forthcoming**  
 
 [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/), Sarah Myerscough Gallery, London  
 13 October - 29 November 2025  
