@@ -3,7 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London, UK. Her practice encompasses sculpture, painting, drawing and installation. She was a recipient of the 2024 Ingram Prize and holds an MA in sculpture from the Royal College of Art, London.  
+Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London, UK with a practice encompassesing sculpture, painting, drawing and installation.  
 <br/>  
 <br/>  
   
