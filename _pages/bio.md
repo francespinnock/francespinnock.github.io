@@ -3,7 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London, UK, her practice encompasses sculpture, painting, drawing, and installation. She holds an MA in sculpture from the Royal College of Art and a BA from Arts University Bournemouth. In 2024 Pinnock received the Ingram Prize for her work Light Sleeper and will present a solo exhibition of the same name at Lightbox Gallery & Museum, Woking, UK (2025).    
+Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London, UK. She holds an MA in sculpture from the Royal College of Art and a BA from Arts University Bournemouth. In 2024 she received the Ingram Prize for her work Light Sleeper and will present a solo exhibition of the same name at Lightbox Gallery & Museum, Woking, UK (2025).    
 <br/>  
 <br/>  
   
