@@ -19,6 +19,7 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
+<br/>  
 
 [Artist talk](https://www.thelightbox.org.uk/whats-on/art-talk-frances-pinnock), Lightbox Gallery & Museum, Woking  
 4 December   1 – 2 pm  
