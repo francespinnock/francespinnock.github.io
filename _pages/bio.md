@@ -3,7 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---  
-Frances Pinnock is a visual artist living and working in London, UK. She holds an MA in sculpture from the Royal College of Art and is an award recipient of QEST, Gilbert Bayes, Arts Council England, and Sarabande Foundation.  Her work is held in the Ingram Collection, UK and the Museum of Leathercraft, UK as well as private collections in the USA and UK. Pinnock has exhibited internationally, most recently at FOG Design+Art, San Francisco, USA (2022, 2025) and TEFAF Maastricht, NL (2024) with Sarah Myerscough Gallery, London, UK.  In 2024 she received the Ingram Prize for her work Light Sleeper and will present a solo exhibition of the same name at Lightbox Gallery & Museum, Woking, UK (2025).    
+Frances Pinnock (b. 1990 Bristol, UK) is a visual artist living and working in London. She holds an MA in sculpture from the Royal College of Art, London. In 2024 she received the Ingram Prize for her work _Light Sleeper_ and will present a solo exhibition of the same name at Lightbox Gallery & Museum, Woking, UK (2025). Her solo exhibitions _Accoutrements & Illuminations_, Sarah Myerscough Gallery, London is on until 29 November, 2025. Recent group exhibitions include: _FOG Design+Art_, San Francisco (2022, 2025); _Ingram Prize_, Unit 1 Gallery | Workshop, London (2024); _This Country_, Crafts Council Gallery, London (2024); _TEFAF Maastricht_ Maastricht (2024); _Cut & Fold_, Make Hauser & Wirth, Somerset (2023) _Material Beings_, Cromwell Place, London (2023) _Hung, Drawn & Quartered_, Standpoint Gallery, London (2023).     
 <br/>  
 <br/>  
   
