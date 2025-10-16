@@ -29,7 +29,12 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 <br/>  
 
 
-[CV](/cv.pdf){:target="_blank"} 
+[CV](/cv.pdf){:target="_blank"}   
+
+
+
+<br/>  
+<br/> 
 
 
 
