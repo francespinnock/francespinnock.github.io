@@ -27,11 +27,12 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 4 December   1 – 2 pm  
 
 <br/>  
-<br/>  
-<br/>  
-<br/>  
+<br/> 
+<br/>
 
-[CV](/cv.pdf){:target="_blank"} 
+[CV](/cv.pdf){:target="_blank"}  
+<br/>  
+<br/>
 
 
 
