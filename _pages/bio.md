@@ -34,9 +34,9 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 **Select group exhibitions**  
 
 2025 [FOG Design+Art](https://www.sarahmyerscough.com/exhibitions/73-raw-edges-fog-2025/), San Francisco, Sarah Myerscough Gallery, London, UK  
-2024 [Ingram Prize](https://ingramcollection.com/home/2024-ingram-prize-winners/), Unit 1 Gallery | Workshop, London, UK
-2024 [This Country](https://www.forest-and-found.com/this-country), Crafts Council Gallery, London, UK
-2024 [TEFAF Maastricht](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), Sarah Myerscough Gallery, London, UK
+2024 [Ingram Prize](https://ingramcollection.com/home/2024-ingram-prize-winners/), Unit 1 Gallery | Workshop, London, UK  
+2024 [This Country](https://www.forest-and-found.com/this-country), Crafts Council Gallery, London, UK  
+2024 [TEFAF Maastricht](https://www.sarahmyerscough.com/exhibitions/60-monolith-tefaf-maastricht-art-fair/), Sarah Myerscough Gallery, London, UK  
 2023 [Cut and Fold](https://www.hauserwirth.com/make/41222-cut-and-fold/), Make Hauser & Wirth, Somerset, UK  
 2023 [Material Beings](https://www.forest-and-found.com/material-beings), Cromwell Place, London, UK  
 2023 [Hung, Drawn & Quartered](https://standpointlondon.co.uk/gallery/2023/hung-drawn/index.php), Standpoint Gallery, London, UK  
