@@ -28,7 +28,7 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 4 December   1 – 2 pm  
 <br/>  
 
-Together, Sarah Myerscough Gallery, London  (group show)
+Together, Sarah Myerscough Gallery, London  (group show)  
 10 December 2025 - 7 February 2026  
 
 <br/>  
