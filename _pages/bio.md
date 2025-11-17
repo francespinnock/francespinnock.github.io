@@ -20,7 +20,7 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 [Artist talk](https://www.thelightbox.org.uk/whats-on/art-talk-frances-pinnock), Lightbox Gallery & Museum, Woking  
 4 December   1 – 2 pm  
 <br/>  
-[Together](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/), Sarah Myerscough Gallery, London  
+[Together](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/), Sarah Myerscough Gallery, London (Group show)  
 11 December 2025 - 7 Februaty 2026  
 <br/>  
 <br/>  
