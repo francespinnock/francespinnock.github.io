@@ -18,6 +18,7 @@ Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland
 <br/>  
 <br/>  
 **Forthcoming**  
+<br/>  
 [Artist talk](https://www.thelightbox.org.uk/whats-on/art-talk-frances-pinnock), Lightbox Gallery & Museum, Woking  
 4 December   1 – 2 pm  
 <br/>  
