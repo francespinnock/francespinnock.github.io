@@ -20,7 +20,7 @@ Solo | [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-l
 Talk | [In conversation with Jo Baring](https://www.thelightbox.org.uk/whats-on/art-talk-frances-pinnock), Lightbox Gallery & Museum, Woking  
 4 December   1 – 2 pm  
 <br/>  
-Group | [Together](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/), Sarah Myerscough Gallery, London (Group show)  
+Group | [Together](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/), Sarah Myerscough Gallery, London  
 11 December 2025 - 7 Februaty 2026  
 <br/>  
 <br/>  
