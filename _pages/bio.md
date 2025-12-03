@@ -7,10 +7,6 @@ description: Frances Pinnock - Biography
 <br/>  
 **Current**  
 <br/>  
-Solo | [Accoutrements & Illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations/), Sarah Myerscough Gallery, London  
-13 October - 29 November 2025  
-Accompanying essay [The Endings](/The-Endings-SK.pdf) by Sharon Kivland  
-<br/>  
 Solo | [Light Sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
