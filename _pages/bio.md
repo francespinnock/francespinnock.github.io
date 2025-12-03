@@ -20,6 +20,11 @@ Group | [Together](https://www.sarahmyerscough.com/exhibitions/81-together-exhib
 11 December 2025 - 7 Februaty 2026  
 <br/>  
 <br/>  
+
+[The Wick](https://thewickculture.com/spotlight-frances-pinnock/)  
+<br/>  
+<br/>  
+
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 <br/>  
