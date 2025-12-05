@@ -21,9 +21,15 @@ Sarah Myerscough Gallery, London
 
 <br/>  
 <br/>  
+**Recent**  
+<br/>  
+Solo | [accoutrements & illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations-exhibitions/)  
+Sarah Myerscough Gallery, London   
+13 October – 29 November 2025
 
   
-
+<br/>  
+<br/>  
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 <br/>  
