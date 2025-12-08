@@ -23,18 +23,20 @@ Sarah Myerscough Gallery, London
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 <br/>  
+---------------------------------------------------------------------------------------------------------------------------------  
+<br/>  
 
 **solo**  
-<br/>  
-2025 [light sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking, UK
+
+2025 [light sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking, UK  
 2025 [accoutrements & illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations-exhibitions/), Sarah Myerscough Gallery, London, UK  
 <br/>  
 
 **select group**  
-<br/>  
+
 2025  
 Together, Sarah Myerscough Gallery, London, UK  
-Pinpoint, Sarabande Foundation, London, UK
+Pinpoint, Sarabande Foundation, London, UK  
 FOG Design+Art, San Francisco, Sarah Myerscough Gallery, London, UK  
 
 2024  
@@ -59,27 +61,20 @@ Artefact, Design Centre Chelsea Harbour, London, UK
 <br/>
 
 **Talks**  
-<br/>  
-2025     In conversation with Jo Baring, Lightbox Gallery & Museum, Woking, UK  
+2025  In conversation with Jo Baring, Lightbox Gallery & Museum, Woking, UK  
 <br/>
 
 **awards & residencies**  
-<br/>  
+
 2024  Ingram Prize  
 2024  Studio award, Sarabande Foundation  
 2023  Gilbert Bayes Grant,  Royal College of Art  
 2022  Leverhulme Arts Scholarship, Royal College of Art  
 2022  Leathersellers’ Academic Grant 
 2021  DYCP, Arts Council England
-2017  QEST Scholarship, Garfield Weston Foundation
+2017  QEST Scholarship, Garfield Weston Foundation  
+<br/>  
 
-
-
-
-
-
-     
-        
 **collections**  
 
 Ingram Collection, UK  
