@@ -17,22 +17,20 @@ Lightbox Gallery & Museum, Woking
 Group | Together  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
-  
+<br/>   
+__________________________________________________________________________________________________________________________________  
 <br/>  
 <br/>  
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 <br/>  
----------------------------------------------------------------------------------------------------------------------------------  
-<br/>  
-
-**solo**  
+**solo exhibitions**  
 
 2025 [light sleeper](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper), Lightbox Gallery & Museum, Woking, UK  
 2025 [accoutrements & illuminations](https://www.sarahmyerscough.com/exhibitions/70-frances-pinnock-accoutrements-illuminations-exhibitions/), Sarah Myerscough Gallery, London, UK  
 <br/>  
 
-**select group**  
+**select group exhibitions**  
 
 2025  
 Together, Sarah Myerscough Gallery, London, UK  
@@ -60,7 +58,8 @@ Welding Cultures, SoShiro Gallery, London, UK
 Artefact, Design Centre Chelsea Harbour, London, UK  
 <br/>
 
-**Talks**  
+**talks**  
+
 2025  In conversation with Jo Baring, Lightbox Gallery & Museum, Woking, UK  
 <br/>
 
@@ -71,7 +70,7 @@ Artefact, Design Centre Chelsea Harbour, London, UK
 2023  Gilbert Bayes Grant,  Royal College of Art  
 2022  Leverhulme Arts Scholarship, Royal College of Art  
 2022  Leathersellers’ Academic Grant 
-2021  DYCP, Arts Council England
+2021  DYCP, Arts Council England  
 2017  QEST Scholarship, Garfield Weston Foundation  
 <br/>  
 
