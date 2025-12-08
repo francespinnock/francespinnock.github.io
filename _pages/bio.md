@@ -19,8 +19,9 @@ Sarah Myerscough Gallery, London
 11 December 2025 - 7 February 2026  
 <br/>  
 <br/>  
----  
-<br/>  
+
+---
+
 [CV](/cv.pdf){:target="_blank"}  
  
 
