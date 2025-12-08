@@ -17,8 +17,7 @@ Lightbox Gallery & Museum, Woking
 group | Together  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
-<br/>  
-<br/>  
+<br/>    
 
 ---
 
