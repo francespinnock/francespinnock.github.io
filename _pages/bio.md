@@ -18,7 +18,7 @@ group | Together
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
 <br/>  
-_______________________________________________________________________________________________________________________________
+___
 
 [CV](/cv.pdf){:target="_blank"}  
  
