@@ -6,20 +6,19 @@ description: Frances Pinnock - Biography
   
 <br/>  
 **current**  
-<br/>  
+
 Solo | light sleeper  
 Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
 
 **forthcoming**  
-<br/>  
+
 Group | Together  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
 <br/>   
-__________________________________________________________________________________________________________________________________  
-<br/>  
+---  
 <br/>  
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
