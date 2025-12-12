@@ -23,6 +23,11 @@ Sarah Myerscough Gallery, London
 
 
 [CV](/cv.pdf){:target="_blank"}  
+<br/>
+
+[The Wick](https://thewickculture.com/spotlight-frances-pinnock/?utm_source=ig&utm_medium=social&utm_content=link_in_bio&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnWgIjisZvC4fNrIbOjy-I0ko4-ndBio31I7uvjFWBwT5cw2G22_T9f_QU9mg_aem_pZTaTn4633QOv8Acldl7XQ)  
+<br/>  
+<br/> 
  
 
 
