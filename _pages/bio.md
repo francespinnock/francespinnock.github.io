@@ -11,12 +11,12 @@ lives and works in London, UK
 
 **current exhibitions**  
 
-solo | _light sleeper_  
+solo | [_light sleeper_](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)  
 Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
 
-group | _Together_  
+group | [_Together_](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/)  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
 <br/>  
