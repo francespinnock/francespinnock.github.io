@@ -29,7 +29,7 @@ Sarah Myerscough Gallery, London
 
 **selected group exhibitions**  
 
-2025&nbsp;&nbsp;_Together_, Sarah Myerscough Gallery, London, UK  
+2025 &nbsp; &nbsp; _Together_, Sarah Myerscough Gallery, London, UK  
 2025 .  _Pinpoint_, Sarabande Foundation, London, UK  
 2025 .  _FOG Design+Art_, San Francisco, Sarah Myerscough Gallery, London, UK  
 2024 .  _Ingram Prize_, Unit 1 Gallery | Workshop, London, UK  
