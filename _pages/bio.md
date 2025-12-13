@@ -7,8 +7,10 @@ description: Frances Pinnock - Biography
 
 b.  1990, Bristol, UK  
 lives and works in London  
-studio@francespinnock.com
 <br/>  
+<br/>
+
+  
 
 **current exhibitions**  
 
@@ -20,6 +22,7 @@ Lightbox Gallery & Museum, Woking
 group | [_Together_](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/)  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
+<br/>  
 <br/>  
 
 **solo exhibitions**  
@@ -51,8 +54,8 @@ Sarah Myerscough Gallery, London
 
 **exhibition texts & talks**  
 
-2025 &nbsp; &nbsp; Frances Pinnock: Light Sleeper - In conversation with Jo Baring, Lightbox Gallery & Museum, Woking, UK  
-2025 &nbsp; &nbsp; Frances Pinnock: Accoutrements & Illuminations - Exhibition essay, _The Endings_ by Sharon Kivland   
+2025 &nbsp; &nbsp; Light Sleeper - In conversation with Jo Baring, Lightbox Gallery & Museum, Woking  
+2025 &nbsp; &nbsp; Accoutrements & Illuminations - Exhibition essay, _The Endings_ by Sharon Kivland   
 <br/>  
 
 **awards, grants & scholarships**  
@@ -75,7 +78,6 @@ Museum of Leathercraft, Northampton
 **education**  
 
 2023 &nbsp; &nbsp; Royal College of Art  
-2022 &nbsp; &nbsp; Royal Drawing School  
 2014 &nbsp; &nbsp; Arts University Bournemouth  
 2010 &nbsp; &nbsp; Arts University Plymouth  
 <br/>  
