@@ -54,8 +54,8 @@ Sarah Myerscough Gallery, London
 
 **exhibition texts & talks**  
 
-2025 &nbsp; &nbsp; Light Sleeper - In conversation with Jo Baring, Lightbox Gallery & Museum, Woking  
-2025 &nbsp; &nbsp; Accoutrements & Illuminations - Exhibition essay, _The Endings_ by Sharon Kivland   
+2025 &nbsp; &nbsp; In conversation with Jo Baring, Lightbox Gallery & Museum, Woking  
+2025 &nbsp; &nbsp; Accoutrements & Illuminations Exhibition essay -[_The Endings_](/The Endings.pdf){:target="_blank"}, by Sharon Kivland   
 <br/>  
 
 **awards, grants & scholarships**  
