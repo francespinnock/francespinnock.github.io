@@ -14,7 +14,7 @@ lives and works in London
 
 **current exhibitions**  
 
-[ Frances Pinnock:_light sleeper_](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)  
+[_Frances Pinnock : light sleeper_](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)  
 Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
@@ -75,8 +75,8 @@ Sarah Myerscough Gallery, London
 
 **collections**  
 
-Ingram Collection, Woking  
-Museum of Leathercraft, Northampton  
+Ingram Collection, UK  
+Museum of Leathercraft, UK  
 <br/>  
 
 **education**  
