@@ -14,12 +14,12 @@ lives and works in London
 
 **current exhibitions**  
 
-solo | [_light sleeper_](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)  
+[ Frances Pinnock:_light sleeper_](https://www.thelightbox.org.uk/whats-on/frances-pinnock-light-sleeper)  
 Lightbox Gallery & Museum, Woking  
 15 November 2025 – 18 January 2026  
 <br/>  
 
-group | [_Together_](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/)  
+[_Together_](https://www.sarahmyerscough.com/exhibitions/81-together-exhibitions/)  
 Sarah Myerscough Gallery, London  
 11 December 2025 - 7 February 2026  
 <br/>  
@@ -27,7 +27,7 @@ Sarah Myerscough Gallery, London
 
 **solo exhibitions**  
 
-2025 &nbsp; &nbsp; _Light Sleeper_, Lightbox Gallery & Museum, Woking  
+2025 &nbsp; &nbsp; _Frances Pinnock: Light Sleeper_, Lightbox Gallery & Museum, Woking  
 2025 &nbsp; &nbsp; _Accoutrements & Illuminations_, Sarah Myerscough Gallery, London  
 <br/>  
 
@@ -58,10 +58,14 @@ Sarah Myerscough Gallery, London
 2025 &nbsp; &nbsp; Accoutrements & Illuminations Exhibition essay -[_The Endings_](/The Endings.pdf){:target="_blank"}, by Sharon Kivland   
 <br/>  
 
-**awards, grants & scholarships**  
+**awards**  
 
 2024 &nbsp; &nbsp; Ingram Prize  
-2024 &nbsp; &nbsp; Studio award, Sarabande Foundation  
+2024 &nbsp; &nbsp; Sarabande Foundation studio award  
+<br/>  
+
+**grants & scholarships**  
+
 2023 &nbsp; &nbsp; Gilbert Bayes Grant,  Royal College of Art  
 2022 &nbsp; &nbsp; Leverhulme Arts Scholarship, Royal College of Art  
 2022 &nbsp; &nbsp; Leathersellers’ Academic Grant  
