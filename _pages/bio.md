@@ -12,7 +12,8 @@ Frances Pinnock (b. 1990, Bristol, UK) lives and works in London. Recent solo ex
 <br/>  
 [CV](/cv.pdf){:target="_blank"}     
 <br/>
-<br/>
+<br/>  
+[The Wick](https://thewickculture.com/spotlight-frances-pinnock/)
 
  
  
