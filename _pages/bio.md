@@ -8,14 +8,14 @@ description: Frances Pinnock - Biography
 
 
 
-born 1990 Bristol  
+b. 1990 Bristol  
 lives and works in London   
 <br/>  
 <br/>    
 [CV](/cv.pdf){:target="_blank"}     
 <br/>
 <br/>  
-[The Endings by Sharon Kivland](/TheEndings.pdf){:target="_blank"}
+
 
 
  
