@@ -11,8 +11,8 @@ permissions:
   pages: write
 
 concurrency:
-  group: pages-${{ github.ref_name }}
-  cancel-in-progress: true
+  group: pages-deploy
+  cancel-in-progress: false
 
 jobs:
   # ── Live site: master → root of gh-pages ──────────────────────
@@ -69,7 +69,7 @@ jobs:
           github_token: ${{ secrets.GITHUB_TOKEN }}
           publish_dir: ./_site
           cname: francespinnock.com
-          keep_files: false
+          force_orphan: true
 
   # ── Branch preview: any branch → /preview/<branch>/ ───────────
   deploy-preview:
