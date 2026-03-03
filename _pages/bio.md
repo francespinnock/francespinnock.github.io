@@ -15,7 +15,7 @@ lives and works in London
 [CV](/cv.pdf){:target="_blank"}     
 <br/>
 <br/> 
-[The Endings](/TheEndings.pdf){:target="_blank"} exhibition essay by Sharon Kivland 2025
+[The Endings](/TheEndings.pdf){:target="_blank"} by Sharon Kivland 2025
 
 
 
