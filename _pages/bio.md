@@ -7,15 +7,12 @@ description: Frances Pinnock - Biography
 <br/>
 
 
-
-  
-lives and works in London   
 <br/>  
 <br/>   
 Forthcoming  
 
-invasive species, 1 poultry st. London EC2R 8EJ  
-curated by danielle mezh | produced by jelena cos  
+invasive species, 1 poultry st. London   
+curated by danielle mezh   
 5 June — 11 July 2026  
 <br/>
 
