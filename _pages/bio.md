@@ -8,12 +8,14 @@ description: Frances Pinnock - Biography
 
 
 <br/>  
+<br/>  
 <br/>   
 Forthcoming  
 
 invasive species, 1 poultry st. London   
 curated by danielle mezh   
 5 June — 11 July 2026  
+<br/>  
 <br/>
 
 
