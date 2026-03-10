@@ -4,13 +4,13 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 <br/>  
-<br/>
+<br/>  
+b. 1990 Bristol, UK
 
-
+lives and works in northern London  
 <br/>  
 <br/>  
-<br/>   
-Forthcoming  
+<br/>     
 
 invasive species, 1 poultry st. London   
 curated by danielle mezh   
