@@ -16,7 +16,7 @@ lives and works in London
  
 Forthcoming  
 
-_invasive species_, 1 poultry st. London 
+_invasive species_, 1 poultry st. London  
 curated by danielle mezh   
 5 June — 11 July 2026  
 <br/>  
@@ -26,7 +26,7 @@ curated by danielle mezh
      
 <br/>
 <br/> 
-[The Endings](/TheEndings.pdf){:target="_blank"} by Sharon Kivland 2025
+[The Endings](/TheEndings.pdf){:target="_blank"}Essay by Sharon Kivland 2025
 
 
 
