@@ -26,7 +26,7 @@ curated by danielle mezh
      
 <br/>
 <br/> 
-[The Endings](/TheEndings.pdf){:target="_blank"}Essay by Sharon Kivland 2025
+[The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025
 
 
 
