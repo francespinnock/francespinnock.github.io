@@ -6,9 +6,6 @@ description: Frances Pinnock - Biography
 <br/>  
 <br/>  
 <br/>  
-<br/>  
-<br/>  
- 
 Forthcoming  
 
 _invasive species_, 1 poultry st. London  
