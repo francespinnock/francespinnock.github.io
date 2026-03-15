@@ -6,8 +6,6 @@ description: Frances Pinnock - Biography
 <br/>  
 <br/>  
 <br/>  
-<br/>
-[CV](/cv.pdf){:target="_blank"} 
 <br/>  
 <br/>  
  
@@ -20,7 +18,7 @@ curated by danielle mezh
 <br/>
 
 
-     
+[CV](/cv.pdf){:target="_blank"}  
 <br/>
 <br/> 
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025
