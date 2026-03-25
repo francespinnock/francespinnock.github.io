@@ -6,6 +6,18 @@ description: Frances Pinnock - Biography
 <br/>  
 <br/>  
 <br/>  
+Frances Pinnock
+
+Born 1990, Bristol, UK
+
+Lives and works in London, UK  
+
+[CV](/cv.pdf){:target="_blank"}  
+
+[The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
+<br/>
+<br/>  
+
 Forthcoming  
 
 _invasive species_, 1 poultry st. London  
@@ -15,10 +27,10 @@ curated by danielle mezh
 <br/>
 
 
-[CV](/cv.pdf){:target="_blank"}  
+  
 <br/>
 <br/> 
-[The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025
+
 
 
 
