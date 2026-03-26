@@ -4,8 +4,7 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 <br/>  
-<br/>  
-b. 1990, Bristol, UK  
+<br/>    
 lives and works in London, UK  
 <br/>
 
@@ -16,9 +15,9 @@ lives and works in London, UK
 <br/>
 <br/>  
 
-Forthcoming  
+Upcoming  
 
-_invasive species_, 1 poultry st. London  
+_invasive species_, 1 Poultry St. London  
 curated by danielle mezh   
 5 June — 11 July 2026  
  
