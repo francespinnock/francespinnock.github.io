@@ -9,7 +9,7 @@ lives and works in London, UK
 <br/>  
 Upcoming  
 
-_Repose_  
+[_Repose_](https://londoncraftweek.com/events/8-holland-street-south-of-the-river/)  
 8 Holland Street | South of the River  
 243 - 245 Kennington Lane, London  
 11 May - 13 June 2026  
