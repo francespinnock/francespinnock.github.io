@@ -9,8 +9,15 @@ lives and works in London, UK
 <br/>  
 Upcoming  
 
-_invasive species_, 1 Poultry St. London  
-curated by danielle mezh   
+_Repose_8 Holland Street  
+South of the River  
+243 - 245 Kennington Lane, London  
+ 
+11 May - 13 June 2026  
+<br/>  
+
+_invasive species_, curated by Danielle Mezh, Hypga Gallery 1  
+1 Poultry St. London  
 5 June — 11 July 2026  
 <br/>  
 <br/>  
