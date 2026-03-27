@@ -2,10 +2,10 @@
 title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
----  
-<br/>  
+---    
 lives and works in London, UK  
 <br/>  
+[CV](/cv.pdf){:target="_blank"}  
 <br/> 
   
 
@@ -23,7 +23,7 @@ Hypga Gallery 1 | No. 1 Poultry St, London
 <br/>  
 <br/>  
 
-[CV](/cv.pdf){:target="_blank"}  
+  
 
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
 <br/>
