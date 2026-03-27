@@ -3,11 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---    
-lives and works in London, UK  
-<br/>  
-[CV](/cv.pdf){:target="_blank"}  
-<br/> 
-  
+ 
 
 _Repose_  
 8 Holland Street | South of the River  
@@ -22,12 +18,14 @@ Hypga Gallery 1 | No. 1 Poultry St, London
 <br/>  
 <br/>  
 <br/>  
-
-  
-
-[The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
-<br/>
 <br/>  
+<br/>  
+<br/>  
+
+lives and works in London, UK  
+[CV](/cv.pdf){:target="_blank"}
+[The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
+  
 
   
  
