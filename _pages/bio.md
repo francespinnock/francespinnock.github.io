@@ -4,7 +4,8 @@ subtitle:
 description: Frances Pinnock - Biography
 ---    
  
-
+<br/>  
+<br/>  
 _Repose_  
 8 Holland Street | South of the River  
 243 - 245 Kennington Lane, London  
@@ -21,10 +22,7 @@ EC2R 8EJ
 <br/>  
 <br/>  
 <br/>  
-<br/>  
-<br/>  
 
-  
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
