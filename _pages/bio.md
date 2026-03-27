@@ -22,7 +22,7 @@ Hypga Gallery 1 | No. 1 Poultry St, London
 <br/>  
 <br/>  
 
-lives and works in London, UK  
+  
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
