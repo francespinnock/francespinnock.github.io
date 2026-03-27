@@ -8,11 +8,13 @@ description: Frances Pinnock - Biography
 _Repose_  
 8 Holland Street | South of the River  
 243 - 245 Kennington Lane, London  
+SE11 5QU  
 11 May - 13 June 2026  
 <br/>  
 
 _invasive species_, curated by Danielle Mezh  
-Hypga Gallery 1 | No. 1 Poultry St, London  
+No. 1 Poultry St, London  
+EC2R 8EJ  
 5 June — 11 July 2026  
 <br/>  
 <br/>  
