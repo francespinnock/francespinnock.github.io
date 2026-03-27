@@ -4,10 +4,10 @@ subtitle:
 description: Frances Pinnock - Biography
 ---  
 <br/>  
-<br/>    
 lives and works in London, UK  
 <br/>  
-Upcoming  
+<br/> 
+  
 
 _Repose_  
 8 Holland Street | South of the River  
