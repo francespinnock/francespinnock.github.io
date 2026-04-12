@@ -11,6 +11,7 @@ _Repose_
 243 - 245 Kennington Lane, London  
 SE11 5QU  
 11 May - 13 June 2026  
+PV 12 May 6 - 9pm  
 <br/>  
 
 _invasive species_, curated by Danielle Mezh  
