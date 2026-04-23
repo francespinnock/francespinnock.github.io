@@ -14,7 +14,7 @@ SE11 5QU
 PV 12 May 6 - 9pm  
 <br/>  
 
-_invasive species_, curated by Danielle Mezh  
+_[invasive species](https://www.invasivespecies.art/)_, curated by Danielle Mezh  
 No. 1 Poultry St, London  
 EC2R 8EJ  
 5 June — 11 July 2026  
