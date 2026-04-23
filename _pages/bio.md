@@ -11,13 +11,14 @@ _Repose_
 243 - 245 Kennington Lane, London  
 SE11 5QU  
 11 May - 13 June 2026  
-PV 12 May 6 - 9pm  
+PV Tuesday 12 May 6 - 9pm  
 <br/>  
 
 _[invasive species](https://www.invasivespecies.art/)_, curated by Danielle Mezh  
 No. 1 Poultry St, London  
 EC2R 8EJ  
 5 June — 11 July 2026  
+PV Thursday 4 June  6 - 9 pm
 <br/>  
 <br/>  
 <br/>  
