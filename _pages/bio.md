@@ -6,7 +6,7 @@ description: Frances Pinnock - Biography
  
 <br/>  
 <br/>  
-_Repose_  
+_[Repose](https://8hollandstreet.com/events/74/)_  
 8 Holland Street | South of the River  
 243 - 245 Kennington Lane, London  
 SE11 5QU  
