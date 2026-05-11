@@ -6,8 +6,13 @@ description: Frances Pinnock - Biography
  
 <br/>  
 <br/>  
-_[Repose](https://8hollandstreet.com/events/74/)_  
-8 Holland Street | South of the River  
+_The Art of Welcoming_, Mandarin Oriental Mayfair  
+22 Hanover Square, London  
+W1S 1JP  
+7th  May – 8th  September 2026  
+<br/>  
+
+_[Repose](https://8hollandstreet.com/events/74/)_, 8 Holland Street  
 243 - 245 Kennington Lane, London  
 SE11 5QU  
 11 May - 13 June 2026  
