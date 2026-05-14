@@ -11,13 +11,11 @@ _The Art of Welcoming_, Mandarin Oriental Mayfair
 <br/>  
 
 _[Repose](https://8hollandstreet.com/events/74/)_, 8 Holland Street  
-11 May - 13 June 2026  
-PV Tuesday 12 May 6 - 9pm  
+11 May - 13 June 2026    
 <br/>  
 
 _[invasive species](https://www.invasivespecies.art/)_, curated by Danielle Mezh  
 5 June — 11 July 2026  
-PV Thursday 4 June  6 - 9 pm
 <br/>  
 <br/>  
 <br/>  
