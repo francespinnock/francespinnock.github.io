@@ -3,7 +3,9 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---    
- 
+ Frances Pinnock  
+ b.1990 Bristol, UK  
+ Lives and works in London 
 <br/>  
 <br/>  
 _[Repose](https://8hollandstreet.com/events/74/)_, 8 Holland Street  
@@ -24,6 +26,7 @@ _The Art of Welcoming_, Mandarin Oriental Mayfair
 [CV](/cv.pdf){:target="_blank"}  
 <br/>  
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
+[The Design Edit](https://thedesignedit.com/exhibitions/london-dispatch-may-2026-part-ii/)  
   
 
   
