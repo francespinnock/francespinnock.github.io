@@ -19,10 +19,14 @@ _The Art of Welcoming_, Mandarin Oriental Mayfair
 <br/>  
 <br/>  
 
-[CV](/cv.pdf){:target="_blank"}  
-<br/>  
 [The Endings](/TheEndings.pdf){:target="_blank"}  Essay by Sharon Kivland 2025  
 [The Design Edit](https://thedesignedit.com/exhibitions/london-dispatch-may-2026-part-ii/)  
+<br/>  
+<br/>  
+
+[CV](/cv.pdf){:target="_blank"}  
+<br/>  
+ 
   
 
   
