@@ -3,11 +3,7 @@ title: Biography
 subtitle: 
 description: Frances Pinnock - Biography
 ---    
- Frances Pinnock  
- b.1990 Bristol, UK  
- Lives and works in London 
-<br/>  
-<br/>  
+ 
 _[Repose](https://8hollandstreet.com/events/74/)_, 8 Holland Street  
 11 May - 13 June 2026  
 <br/>  
