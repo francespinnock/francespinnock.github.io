@@ -11,7 +11,7 @@ featured_image: /images/demo/demo-landscape.jpg
  
 All enquiries : studio@francespinnock.com  
 
-[@francespinnock](https://www.instagram.com/francespinnock/) 
+
  
 
 <br />  
