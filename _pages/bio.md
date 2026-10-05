@@ -12,10 +12,10 @@ description: Frances Pinnock - Biography
 >  
 <br/>  
 <br/>
-> Forthcoming
->
-> _Gathering Rest_, Two Temple Place, London   (Group Show)
-> 23rd January – 18th April 2027  
+Forthcoming
+
+_Gathering Rest_, Two Temple Place, London   (Group Show)
+23rd January – 18th April 2027  
 
   
  
